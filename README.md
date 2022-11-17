@@ -2,7 +2,7 @@
 
 ( [Cheat Sheet Mark V by Roage](http://www.roage.com/res/html/CheatSheetMarkV.html) )
 
-( translated by (liquidnight2)[https://github.com/liquidnight2/cheat-sheet] )
+( translated by [liquidnight2](https://github.com/liquidnight2/cheat-sheet) )
 
 
 <img src="http://www.roage.com/img/hg.png" width="300" align="center" />
@@ -114,22 +114,17 @@ Bestimmte Begriffe neigen dazu, für viele Menschen eine automatische Verständn
 
 
 
----
-:scroll: 
-
-
-
 
 ### Ein Überblick über den Prozess der Erreichung des Heiligen Grals
 
 Die zwei Hauptschlüssel zur Realität sind einfach:
 
-#### 1. Entspannen Sie sich und genießen Sie die Show  
+#### 1. Entspanne Dich und genieße die Show  
     
-#### 2. Heiliger Gral: Ich werde dir (der höchsten Autorität, unter der unsere körperliche Existenz regiert wird: Ø) bedingungslos vertrauen, wenn du mir meine Fähigkeit entziehst, Menschen zu Opfern zu machen.  
+#### 2. Heiliger Gral: Ich werde Dir (der höchsten Autorität, unter der unsere körperliche Existenz regiert wird: Ø) bedingungslos vertrauen, wenn du mir meine Fähigkeit entziehst, Menschen zu Opfern zu machen.  
     
 
-Klingt auf den ersten Blick einfach, nicht wahr? Um jedoch zu wissen, warum es funktioniert, muss man fast jede Annahme überdenken, die uns über die Realität beigebracht wurde. Um dies zu erreichen, sind neue Werkzeuge erforderlich, oder genauer gesagt, wir müssen uns daran erinnern, wie wir die Werkzeuge verwenden, die wir als kleine Kinder erhalten haben, bevor wir uns entschieden haben, einen verwirrenden Pfad zu beschreiten, und sie sind:
+Klingt auf den ersten Blick einfach, nicht wahr? Um jedoch zu wissen, warum es funktioniert, muss man fast jede Annahme überdenken, die uns über die Realität beigebracht wurde. Um dies zu erreichen, sind neue Werkzeuge erforderlich, oder genauer gesagt: wir müssen uns daran erinnern, wie wir die Werkzeuge verwenden, die wir als kleine Kinder erhalten haben, bevor wir uns entschieden haben, einen verwirrenden Pfad zu beschreiten. Diese sind:
 
 1. Den Fokus unserer Aufmerksamkeit auf den unmittelbaren Moment (jetzt) ​​richten  
     
@@ -161,7 +156,16 @@ Zusätzlich zu diesen Schlüsselelementen implementieren wir neue Wege, uns selb
 3. Errichtung und Überwindung der Barrieren zur Errichtung der Mittel zur Wiederverbindung und Kommunikation mit dem ewigen Lehrwesen, das wir sind  
     
 
-Die Liste scheint viel zu sein, aber es ist alles in dir und es wird durch das eigene Vertrauen in den Lehrer in dir offenbart: Ø.
+Die Liste scheint viel zu sein, aber es ist alles in Dir und es wird durch das eigene Vertrauen in den Lehrer in Dir offenbart: Ø.
+
+
+
+---
+:scroll: 
+
+
+
+
 
 ## Ein wenig über den Prozess für Wahrheitssucher / Ø-Sucher
 
