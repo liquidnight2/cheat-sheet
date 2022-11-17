@@ -84,23 +84,23 @@ Der Grund, warum Du gerade hier bist, ist, dass Du den ersten entscheidenden Sch
 
 Wir vermeiden das, weil wir Angst haben, dass wir und oft auch andere uns für verrückt halten. Der Witz ist, dass die Unfähigkeit zu akzeptieren, was präsentiert wird, Dich daran hindern wird, Deinen Wahnsinn zu heilen. Bevor man jemals hoffen kann, gesund oder nicht verwirrt zu werden, muss man zuerst vermuten, dass man verwirrt oder verrückt ist. Bis Du den Mut dazu hast, verschließt Du Dich der Heilung.
 
----
-:scroll: 
 
 
 
+Wenn Du Dich verloren, verwirrt oder verrückt fühlst, dann bist Du genau dort, wo Du sein musst. Die wirklich Verrückten leugnen es und haben sich der Illusion hingegeben, sie seien nicht verrückt.
 
-Wenn Sie sich verloren, verwirrt oder verrückt fühlen, dann sind Sie genau dort, wo Sie sein müssen. Die wirklich Verrückten leugnen es und haben sich der Illusion hingegeben, sie seien nicht verrückt.
+Dies ist die fünfte Iteration des Cheat Sheets. Es wurde über 12 Jahre entwickelt, wobei lebenslange Beobachtungen und Überarbeitungen einbezogen wurden, um es für Dich nützlich zu machen. Es wurde als der schnelle Weg zur Erleuchtung beschrieben. Es ist nicht so, dass es schwierig ist, aber das Hauptproblem ist, dass es einfach ist und wir eine Menge Kontext brauchen, um es durchzustehen. Stelle  Dir vor, Du springst von einer Klippe. Alles was erforderlich ist, ist sich einfach zu entspannen und nach vorne zu fallen, aber die Angst zu bewältigen ist die Hürde.
 
-Dies ist die fünfte Iteration des Cheat Sheets. Es wurde über 12 Jahre entwickelt, wobei lebenslange Beobachtungen und Überarbeitungen einbezogen wurden, um es für Sie nützlich zu machen. Es wurde als der schnelle Weg zur Erleuchtung beschrieben. Es ist nicht so, dass es schwierig ist, aber das Hauptproblem ist, dass es einfach ist und wir eine Menge Kontext brauchen, um es durchzustehen. Stellen Sie sich vor, Sie springen von einer Klippe. Alles, was erforderlich ist, ist sich einfach zu entspannen und nach vorne zu fallen, aber die Angst zu bewältigen ist die Hürde.
+Es wird von Dir verlangen,  dass Du alles was Du über das Leben zu wissen glaubst, beiseite legst und wirklich offen bist. Diejenigen, die diese Methodik wirklich ausprobiert und angewendet haben, wurden vollständig verändert. Sie  können den Unterschied nicht beschreiben, aber sie wollen nicht wieder so werden, wie sie waren. Hier sind einige Dinge, über die Du wirklich nachdenken solltest, bevor Du beginnst, also sei ehrlich zu Dir selbst und nimm Dir etwas Zeit:
 
-Es wird von Ihnen verlangen, alles, was Sie über das Leben zu wissen glauben, beiseite zu legen und wirklich offen zu sein. Diejenigen, die diese Methodik wirklich ausprobiert und angewendet haben, wurden vollständig verändert. Sie können den Unterschied nicht beschreiben, aber sie wollen nicht wieder so werden, wie sie waren. Hier sind einige Dinge, über die Sie wirklich nachdenken sollten, bevor Sie beginnen, also seien Sie ehrlich zu sich selbst und nehmen Sie sich etwas Zeit:
+Bist Du glücklich? Möchteest Du lieber Recht haben als glücklich sein? Wenn Du es für Dich ändern könntest, würdest Du es ändern?  Was ist, wenn es nicht darum geht, dass Deine Logik falsch ist, sondern Ihre Schlussfolgerungen darauf beruhen, dass Du nicht vollständig beobachten konntest, was Ihnen in Deinem Leben widerfahren ist?
 
-Sind Sie glücklich? Möchten Sie u lieber Recht haben als glücklich sein? Wenn Sie  es für sich ändern könnten, würden Sie es ändern?  Was ist, wenn es nicht darum geht, dass Ihre Logik falsch ist, sondern Ihre Schlussfolgerungen darauf beruhen, dass Sie nicht vollständig beobachten konnten, was Ihnen in Ihrem Leben widerfahren ist?
 
 #### Das Leben enthält keine Lektion. Das Leben ist die Lektion.
 
-Selbst wenn Sie es jetzt nicht glauben, tun Sie einfach so, als würden Sie Ihr Leben als eine interaktive Lektion betrachten, die Sie zu diesem Zeitpunkt genau jetzt brachte. Bald werden Sie dabei sein, nicht mehr vorzutäuschen.
+Selbst wenn Du es jetzt nicht glaubst, tue  einfach so als würdest Du Dein Leben als eine interaktive Lektion betrachten, die Dich zu diesem Zeitpunkt genau jetzt brachte. Bald wirst Du dabei sein, Dir nichts mehr vorzutäuschen.
+
+
 
 
 
@@ -110,7 +110,13 @@ Ich werde "On" (oder ahn) sprechen, um den Kreis mit einem vertikalen Schrägstr
 
 Ø ist die mengentheoretische Darstellung einer „leeren Menge“ oder „Nullmenge“ und wird manchmal mit leeren geschweiften Klammern {} dargestellt. In der Gesamtheit des menschlichen Denkens und der Sprache existiert kein einziger Begriff, um die „Nicht-Wesenheit“ richtig darzustellen, die von Natur aus das Höchste und Autorität im Universum und außerhalb des Universums ist. Das Symbol Ø ist kein Abbild dieser Nicht-Entität. Dieses Symbol ist ein Platzhalter für das, was keinen Platzhalter hat. Das Symbol beschreibt all das, was das „Nichts“ nicht ist.
 
-Bestimmte Begriffe neigen dazu, für viele Menschen eine automatische Verständnisblockade zu schaffen. Menschen verlieren sich oft in einem Streit über Religion oder Semantik. Dies ist ein Grund für die Verwendung eines umgekehrten Symbols. Darüber hinaus ist es eine Tatsache, dass Ø weitgehend missverstanden und ignorant für eine Menge menschliches Leid, Frustration und Verdorbenheit verantwortlich gemacht wird. Es ist erforderlich, da Sie leben, und Sie benötigen etwas, an dem Sie sich festhalten können, da „nichts“ schwer fassbar ist. Man könnte es auch als „Schwarzes Ganzes“ betrachten. Ø ist die Wahrheit, die du suchst.
+Bestimmte Begriffe neigen dazu, für viele Menschen eine automatische Verständnisblockade zu schaffen. Menschen verlieren sich oft in einem Streit über Religion oder Semantik. Dies ist ein Grund für die Verwendung eines umgekehrten Symbols. Darüber hinaus ist es eine Tatsache, dass Ø weitgehend missverstanden und ignorant für eine Menge menschliches Leid, Frustration und Verdorbenheit verantwortlich gemacht wird. Es ist erforderlich da Du lebst, und Du benötigst etwas an dem Du Dich festhalten kanst, da "nichts“ schwer fassbar ist. Man könnte es auch als „Schwarzes Ganzes“ betrachten. Ø ist die Wahrheit, die Du suchst.
+
+
+
+---
+:scroll: 
+
 
 
 
