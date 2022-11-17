@@ -16,17 +16,23 @@ Diese und frühere Ausgaben des Spickzettels funktionieren und haben es vielen M
 
 Das wichtigste zuerst! Man muss sich darüber im Klaren sein, wie begrenzt die gesprochene und geschriebene Sprache ist, wenn man Konzepte in Beziehung setzt, mit denen Menschen ihr ganzes Leben lang keine Erfahrung gemacht haben.
 
-**Der Spickzettel Mark V ist viel wirkungsvoller, wenn Sie ihn sich selbst laut vorlesen, als ihn einfach still zu lesen oder sogar zuzuhören, wenn er Ihnen vorgelesen wird.**
+**Der Spickzettel Mark V ist viel wirkungsvoller, wenn Du ihn Dir selbst laut vorliest, als ihn einfach still zu lesen oder sogar zuzuhören, wenn er Dir vorgelesen wird.**
 
 ### Warum?
 
 Die Klänge, die die Worte erzeugen, und was sie in dir hervorrufen, sind weitaus mächtiger als die Definition der Worte. Die linke Gehirnhälfte oder das Ego kommuniziert mit geschriebener und gesprochener Sprache. Die rechte Gehirnhälfte oder unser wahres Selbst kommuniziert über Symbole und die Ereignisse, die in unserer Realität stattfinden. Schlimmer noch, die linke Gehirnhälfte (Ego) allein hat nicht die sensorische Fähigkeit, das Selbst zu erkennen oder zu messen, und ist völlig blind für das Selbst. Das Ego muss sich auf seine Interpretation seiner Gefühle und den Grund für Gedanken und Ereignisse verlassen, die in seiner Umgebung auftreten, um zu wissen, was das Selbst zu kommunizieren versucht. Diese Kommunikationsversuche werden zunächst vom Ego als „Synchronizitäten“ oder „Zufälle“ erkannt. Man muss akzeptieren, dass das Selbst tatsächlich versucht, diese Kommunikation herzustellen.
 
-Ich werde nun die Begrenzung des gesprochenen oder geschriebenen Wortes aufdecken. Wenn ich "Baum" sage, denken Sie an all die Zeiten zurück, als Sie direkte Erfahrungen mit "Baum" gemacht haben, und durch Ihre direkte Erfahrung kennen Sie dann die *Bedeutung*  von Baum. Als Kind kannten Sie die Bedeutung von "Baum" nicht, also fragten Sie jemanden, der die Bedeutung von Baum kannte. Wenn man dann einen Baum sah, fühlte und roch, wusste man, was "Baum" bedeutete.
+Ich werde nun die Begrenzung des gesprochenen oder geschriebenen Wortes aufdecken. Wenn ich "Baum" sage, denkst Du an all die Zeiten zurück, als Du direkte Erfahrungen mit "Baum" gemacht hast, und durch Ihre direkte Erfahrung kennst Du dann die *Bedeutung*  von Baum. Als Kind kanntest Du die Bedeutung von "Baum" nicht, also fragtest Du jemanden, der die Bedeutung von Baum kannte. Wenn man dann einen Baum sah, fühlte und roch, wusste man was "Baum" bedeutete.
 
 ### Hindernis 1
 
-Wenn ich "Torg" schreibe oder sage, ein Wort, von dem Sie weder die Definition noch die Bedeutung kennen, dann ist es Ihnen unbekannt. Wenn ich "Torg" als einen flauschigen rosa Basketball definiere, dann hast du nur einen flauschigen rosa Basketball. Ich habe es als "wie" einen Basketball definiert, der rosa und flauschig ist, aber bis Sie einen in der Hand halten, wird es für Sie immer ein pinkfarbener und flauschiger Basketball sein. Das Korrigieren dieser Bedeutungslücke ist einfach, weil ich Ihnen nur ein Torg in die Hand geben muss, und jetzt können Sie die Bedeutung von Torg kennen.
+Wenn ich "Torg" schreibe oder sage, ein Wort, von dem Du weder die Definition noch die Bedeutung kennst, dann ist das Dir unbekannt. Wenn ich "Torg" als einen flauschigen rosa Basketball definiere, dann hast Du nur einen flauschigen rosa Basketball. Ich habe es als "wie" einen Basketball definiert, der rosa und flauschig ist, aber bis Du einen in der Hand hälts, wird es für Dich immer ein pinkfarbener und flauschiger Basketball sein. Das Korrigieren dieser Bedeutungslücke ist einfach, weil ich Dir nur ein Torg in die Hand geben muss, und jetzt kannst Du die  Bedeutung von Torg kennen.
+
+
+---
+:scroll: 
+
+
 
 ### Hindernis 2
 
@@ -502,9 +508,6 @@ Der Vertrag besteht auf Dauer. Denn wenn "Du" nicht „bedingungslos vertraust�
 Hat das geholfen?
 
 
-
----
-:scroll: 
 
 
 
