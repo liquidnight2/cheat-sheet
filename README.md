@@ -160,22 +160,24 @@ Die Liste scheint viel zu sein, aber es ist alles in Dir und es wird durch das e
 
 
 
+## Ein wenig über den Prozess für Wahrheitssucher / Ø-Sucher
+
+Mein bester Rat ist, sich zu entspannen. Du bist bereits dabei. Eigentlich warst Du  schon immer dabei. Dies ist das Erste, was Du  vielleicht als unmittelbare Lebenslektion ansehen solltest. Es ist nur ein „Gefühl“, dass es andere gibt die etwas wissen, was Du nicht weißt. All das weißt Du bereits. Bis jetzt war es einfach nicht nötig, in Deinem Bewusstsein zu sein. Es wird eine nuancierte Herangehensweise erfordern, damit Du Dir  erlaubst zu „sehen“. Es hilft nicht, zu versuchen, nach Ø zu „suchen“ oder „Ausschau zu halten“. Ø ist bereits hier. Man kann nicht sehen, was nicht gesehen werden kann.
+
+Ich werde einen anderen Ansatz versuchen und vielleicht kannst Du sehen, worauf ich hinaus will. Ich zeige auf den Mond, aber lassen Sie  sich  nicht vom Finger ablenken.
+
+Es ist, als hätte man ein Wort „auf der Zunge“. Je mehr Du versuchst, Dich zu erinnern, desto mehr blockierst Du Deinen Prozess und desto mehr entzieht er sich Ihnen. Wenn Du dann um 3:00 Uhr morgens entspannt bist, kommt es automatisch zu Dir. Dies liegt daran, dass der   🔴 ???    „Speicher-Server“-Rückstand gelöscht werden durfte.   
+
+Weil diese Dinge, über die hier gesprochen wird, so nuanciert sind, dass Du nicht direkt darauf eingehen kannst. Der Grund dafür ist, dass das Ego (ich werde später darauf eingehen) die Jalousie an die gleiche Stelle bewegt, an der Ihre Augen hinsehen. Das ist seine Funktion. Ø wird von selbst kommen. Ich weiß, es wird. Sonst wärst Du jetzt nicht hier.
+
+
+
+
 ---
 :scroll: 
 
 
 
-
-
-## Ein wenig über den Prozess für Wahrheitssucher / Ø-Sucher
-
-Mein bester Rat ist, sich zu entspannen. Sie sind bereits dabei. Eigentlich waren Sie schon immer dabei. Dies ist das erste, was Sie sich vielleicht als unmittelbare Lebenslektion ansehen sollten. Es ist nur ein „Gefühl“, dass es andere gibt, die etwas wissen, was Sie nicht wissen. All das wissen Sie bereits. Bis jetzt war es einfach nicht nötig, in Ihrem Bewusstsein zu sein. Es wird eine nuancierte Herangehensweise erfordern, damit Sie sich erlauben zu „sehen“. Es hilft nicht, zu versuchen, nach Ø zu „suchen“ oder „Ausschau zu halten“. Ø ist bereits hier. Man kann nicht sehen, was nicht gesehen werden kann.
-
-Ich werde einen anderen Ansatz versuchen und vielleicht können Sie sehen, worauf ich hinaus will. Ich zeige auf den Mond, lassen Sie  sich  nicht von dem Finger ablenken.
-
-Es ist, als hätte man ein Wort „auf der Zunge“. Je mehr Sie versuchen, sich zu erinnern, desto mehr blockieren Sie Ihren Prozess und desto mehr entzieht er sich Ihnen. Wenn Sie dann um 3:00 Uhr morgens entspannt sind, kommt es automatisch zu Ihnen. Dies liegt daran, dass der „Speicherserver“-Rückstand gelöscht werden durfte.
-
-Weil diese Dinge, über die hier gesprochen wird, so nuanciert sind, dass Sie nicht direkt darauf eingehen können. Der Grund dafür ist, dass das Ego (ich werde später darauf eingehen) die Jalousie an die gleiche Stelle bewegt, an der Ihre Augen hinsehen. Das ist seine Funktion. Ø wird von selbst kommen. Ich weiß, es wird. Sonst wärst du jetzt nicht hier.
 
 
 ### Was funktioniert, ist Folgendes:
