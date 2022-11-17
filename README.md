@@ -1,2 +1,510 @@
-# cheat-sheet
-Roage's Cheat Sheet Mark 5
+## Spickzettel Mark V
+( [Cheat Sheet Mark V by Roage](http://www.roage.com/res/html/CheatSheetMarkV.html) )
+
+<img src="http://www.roage.com/img/hg.png" width="300" />
+
+
+
+
+### Vorwort
+
+Der Spickzettel ist ein rechtmäßiger Mechanismus, der es dem Leser ermöglicht, den Heiligen Gral der Arthurianischen Legende zu erfassen und zu enthüllen.  🔴 Das Dokument selbst hat 10 Jahre gebraucht, um sich selbst zu entwickeln, und entwickelt sich weiter, wenn neue Dinge ans Licht kommen. Obwohl der Heilige Gral selbst überraschend einfach ist, bleibt er unserer Wahrnehmung verborgen. Wenn man versucht, das Wissen zu teilen, muss der Empfänger seine eigenen selbst auferlegten Hindernisse und den vorprogrammierten inneren Widerstand gegen die Informationen überwinden. Es hat genau 30 Jahre gedauert, seit ich 12 Jahre alt war (1976-2006) und begann, danach zu suchen, bis ich mich so weit entwirrt hatte, dass ich es endlich begreifen konnte. Während dieser Zeit (obwohl ich es damals nicht wusste) war mein ganzes Leben, alles, was ich erlebte und alles, was ich hatte, diesem Ziel gewidmet. Den größten Teil des Weges wurde ich tretend und schreiend hindurchgezerrt.
+
+In diesem Dokument werde ich zunächst versuchen, die meisten Hindernisse und Barrieren für das Verständnis wegzufegen, die Voraussetzungen für das Verständnis aufzuzeigen und zu enthüllen, was der Heilige Gral ist, wie er funktioniert und wie man diesen Mechanismus im Leben in Kraft setzt.
+
+Diese und frühere Ausgaben des Spickzettels funktionieren und haben es vielen Menschen ermöglicht, das Geheimnis zu entwirren. Man kann nicht einmal so weit kommen, ohne auf einer unbewussten Ebene bereit zu sein. Der Leser ist nicht zufällig hier. Das ist nicht etwas, das man bis zum Ende überspringen und Sinn machen kann. Das hat noch nie funktioniert. Nicht ein einziges Mal! Der Heilige Gral ist bedeutungslos, unglaublich und verwirrend, bis eine angemessene Grundlage geschaffen ist. Es kann mehrere Lesungen und direkte Verstärkung durch die eigene Lebenserfahrung erfordern. Wie lange wird es dauern? Das hängt ganz vom Leser ab und man hat die besten Chancen, es zu bekommen, wenn man die Anweisungen befolgt. Dem Leser „viel Glück“ zu wünschen, ist für alle, die das herausgefunden haben, urkomisch. Roage
+
+Das wichtigste zuerst! Man muss sich darüber im Klaren sein, wie begrenzt die gesprochene und geschriebene Sprache ist, wenn man Konzepte in Beziehung setzt, mit denen Menschen ihr ganzes Leben lang keine Erfahrung gemacht haben.
+
+**Der Spickzettel Mark V ist viel wirkungsvoller, wenn Sie ihn sich selbst laut vorlesen, als ihn einfach still zu lesen oder sogar zuzuhören, wenn er Ihnen vorgelesen wird.**
+
+### Warum?
+
+Die Klänge, die die Worte erzeugen, und was sie in dir hervorrufen, sind weitaus mächtiger als die Definition der Worte. Die linke Gehirnhälfte oder das Ego kommuniziert mit geschriebener und gesprochener Sprache. Die rechte Gehirnhälfte oder unser wahres Selbst kommuniziert über Symbole und die Ereignisse, die in unserer Realität stattfinden. Schlimmer noch, die linke Gehirnhälfte (Ego) allein hat nicht die sensorische Fähigkeit, das Selbst zu erkennen oder zu messen, und ist völlig blind für das Selbst. Das Ego muss sich auf seine Interpretation seiner Gefühle und den Grund für Gedanken und Ereignisse verlassen, die in seiner Umgebung auftreten, um zu wissen, was das Selbst zu kommunizieren versucht. Diese Kommunikationsversuche werden zunächst vom Ego als „Synchronizitäten“ oder „Zufälle“ erkannt. Man muss akzeptieren, dass das Selbst tatsächlich versucht, diese Kommunikation herzustellen.
+
+Ich werde nun die Begrenzung des gesprochenen oder geschriebenen Wortes aufdecken. Wenn ich "Baum" sage, denken Sie an all die Zeiten zurück, als Sie direkte Erfahrungen mit "Baum" gemacht haben, und durch Ihre direkte Erfahrung kennen Sie dann die *Bedeutung*  von Baum. Als Kind kannten Sie die Bedeutung von "Baum" nicht, also fragten Sie jemanden, der die Bedeutung von Baum kannte. Wenn man dann einen Baum sah, fühlte und roch, wusste man, was "Baum" bedeutete.
+
+### Hindernis 1
+
+Wenn ich "Torg" schreibe oder sage, ein Wort, von dem Sie weder die Definition noch die Bedeutung kennen, dann ist es Ihnen unbekannt. Wenn ich "Torg" als einen flauschigen rosa Basketball definiere, dann hast du nur einen flauschigen rosa Basketball. Ich habe es als "wie" einen Basketball definiert, der rosa und flauschig ist, aber bis Sie einen in der Hand halten, wird es für Sie immer ein pinkfarbener und flauschiger Basketball sein. Das Korrigieren dieser Bedeutungslücke ist einfach, weil ich Ihnen nur ein Torg in die Hand geben muss, und jetzt können Sie die Bedeutung von Torg kennen.
+
+### Hindernis 2
+
+Abstrakte Begriffe wie Emotionen können nicht anhand eines physischen Beispiels vermittelt werden. Wörter wie „Liebe“, „Feier“ und „Sorge“ bedeuten für verschiedene Menschen unterschiedliche Dinge, je nachdem, wie sie diese Konzepte in ihrer persönlichen Erfahrung erlebt haben. Wenn ich die Worte „Die Feiertage“ verwende und erwarte, dass jeder weiß, dass ich mich auf „Hanukka und Neujahr“ beziehe, dann ist „Die Feiertage“ nicht nützlich, um die beabsichtigte Bedeutung zu vermitteln. Da wir alle unterschiedliche Erfahrungen mit allen Wörtern machen, führen die Wörter selbst oft zu Missverständnissen, weil die Einzigartigkeit unserer Erfahrung dazu führt, dass wir für jeden von uns subtile unterschiedliche Bedeutungen haben. Ich kann nicht davon ausgehen, dass „May Day“ für den Leser oder Zuhörer an sich etwas Positives bedeutet.
+
+Hier ist die Herausforderung: Die Leute haben nicht nur wenig oder gar kein Wissen über das, was vermittelt wird, sondern es ist nicht greifbar, noch gibt es einfache Worte, die es den Leuten ermöglichen, sich auf ihre bereits bestehenden Erfahrungen zu beziehen. Das bedeutet, dass man sich hier der Beschränkung des Sprachgebrauchs bewusst sein und sich bemühen muss, die Bedeutung hinter den Wörtern zu erfassen, da sie höchstens auf die wahre Bedeutung hinweisen können. Helfen Sie also bitte dabei und lassen Sie sich nicht von dem Gesagten ablenken und konzentrieren Sie sich darauf, was die Worte in Ihnen hervorrufen. Wenn die Worte zu negativen Gefühlen führen, wurden die Worte nicht aufgenommen oder waren zu begrenzt, um leicht zu vermitteln, was gemeint war. Bitte verwenden Sie dies als Leitfaden, denn unter negativen Gefühlen erfasst man nicht die richtige Bedeutung. Es wird mehr Aufmerksamkeit und Selbstreflexion erfordern um zu bemerken, wann dies eintritt. Es wird vorgeschlagen, dass man einfach das negative Gefühl vorübergehen lässt und fortfährt oder versucht, die Worte durchzugehen bis das beabsichtigte positive Ergebnis wahrgenommen wird.
+
+Der Spickzettel Mark V versucht, die Bedeutung einer Zusammenfassung zu vermitteln mit dem viele keine nützliche Erfahrung haben, da wir noch nicht die Fähigkeiten haben, es zu schätzen. Bei den Versuchen Hilfsmittel zu entdecken kann man direktes persönliches Wissen gewinnen.
+
+Die Absicht besteht darin, ein schlechtes Werkzeug (Sprache) zu verwenden, um ein Kunstwerk zu schaffen, trotz der jämmerlichen Unzulänglichkeiten dieses schlechten Werkzeugs. Das laute Lesen des Spickzettels kann genau dabei helfen.
+
+## Einführung
+
+Ich bin Roage, und ich bin genau wie Du ein Wesen aus Fleisch und Blut. Wie die Meisten sah ich das Leben als ein unfaires Rätsel an, das ich nicht begreifen konnte. Mein Leben war eine Sinnlosigkeit, einfach meinen Kopf gegen eine Mauer zu schlagen. Ich dachte buchstäblich, ich wäre in der Hölle, der Gnade unbewusster Dämonen in einem ständigen Zustand der Verwirrung, des Hasses, des Elends, der Krankheit und des Todes ausgeliefert.
+
+Ich war ungefähr zwölf Jahre alt, als ich beschloss, dass die Welt ein Käfig voller unlogischer Tiere ist. Es war eine elende Zeit und alles, was ich wollte, war raus. Aus irgendeinem seltsamen Grund glaubte ich nicht, dass Selbstmord eine Lösung für meine Probleme war, da ich das Gefühl hatte, dass ich gleich wieder in dieser Falle landen würde. Ich dachte immer noch, dass es ein Wesen geben könnte, das die Menschen „Gott“ nennen, also bat ich in völliger Hoffnungslosigkeit und Verzweiflung um die Schlüssel aus der Hölle und würde alles tun, um herauszukommen.
+
+30 Jahre hat es gedauert, bis es soweit war. Ich brauchte alles, um es herauszufinden, und das Lustige war, dass es so einfach war und es die ganze Zeit direkt vor mir war. Der Grund, warum es so lange gedauert hat, ist, dass ich nicht die Wahrnehmungsfähigkeit oder die kognitive Fähigkeit hatte, es zu akzeptieren oder zu verstehen. Noch lustiger ist, dass mir in diesen 30 Jahren Lektionen beigebracht wurden, die meine Wahrnehmung erweitern, die kognitiven Fähigkeiten vermitteln und das alles, während ich zu dem Schluss kam, dass ich nur ein Versager war, der von „Pech“ geplagt und einfach verdammt war.
+
+Als ich anfing, bekam ich die richtigen Werkzeuge für die Aufgabe. Bis zum Äußersten war ich narzisstisch, unsympathisch, bösartig, amoralisch, unehrlich, intelligent, neugierig, detailorientiert, aufmerksam, systematisch und skeptisch. Ich hatte keinen Respekt vor Autorität und zum Glück hatte ich einen gesunden Sinn für Humor und Junge, habe ich das jemals gebraucht! Im Grunde war ich ein Soziopath.
+
+Nach einer intensiven Ausbildung in Wissenschaft und später in Religion und etwas Philosophie kam ich zu dem Schluss, dass diese Institutionen, wenn sie den Ausweg kennen, entweder nichts sagen oder verwirrt sind. So oder so, ich wäre nicht dort, wo ich war, wenn es tatsächlich funktionieren würde.
+
+Ich hielt alles, was mir gesagt wurde, entweder für eine absichtliche Lüge oder für verdächtig. Ich kam zu dem Schluss, dass ich nur glauben würde, was ich mir selbst zeigen und beweisen konnte. Anfangs wusste ich wenig und es zeigte sich. Ich passte nicht hinein und hatte keine Geduld für Menschen. Für mich waren sie Objekte, einfach Subjekte meiner Experimente. Ich lehnte die Standardmodell-Kosmologie ab und sah Korrekturaktoren in der Physik als Produkt intellektueller Faulheit an. Ich habe meine eigenen Grundannahmen zurückgewiesen. Ironie und Zufall empfand ich jedoch als lehrreich und etwas, das man genau beobachten sollte.
+
+Jedes Mal, wenn ich auf eine Barriere traf, fing ich von vorne an. Nur das akzeptieren, was Sinn machte und mir direkt vorgeführt wurde. Es dauerte eine Weile. Ich entfremdete mich von meinen Freunden, meiner Familie und der Gesellschaft. Langsam habe ich einen Rahmen zusammengestellt, den ich in meiner Lebenserfahrung immer wieder getestet und getestet habe. Die Meisten dachten, ich sei verrückt. Ich war verrückt, das heißt, bis 4:44 Uhr morgens am 4. Juli 2006. Ein „Ereignis“ passierte, das aus einem siebenjährigen Studium des Gesetzes resultierte. Nicht das, was Anwälte praktizieren, sondern das Naturgesetz. Dieses hat eine echte Potenz wie Feuer brennt und Dinge herunterfallen, wenn sie fallen gelassen werden. Für mich war Verfahrensrecht Kauderwelsch. Ich lehnte die "Theorie des Rechtspositivismus" als etwas ab, das nur Idioten glauben würden.
+
+Bei diesem "Ereignis" erlebte ich zum ersten Mal: ​​keine Sorge, keine Angst. Ich genoss Frieden, Liebe und vor allem: Klarheit. Nachdem ich das Naturgesetz gelernt hatte, entdeckte ich, dass das Universum ein freundlicher Ort ist. Ich erlangte eine neue Fähigkeit, die es mir ermöglichte, Dinge auf eine neue Weise wahrzunehmen, die meine fünf Sinne nicht erforderte. Ich lernte wahrzunehmen, dass die Natur eine Intelligenz und ein Timing hat. Die Natur ist das, was alle Macht im Universum manifestiert, und es ist wichtig zu wissen, wie sie funktioniert, oder man kann nicht wissen, warum Dinge passieren. Diese Unkenntnis des Naturgesetzes ist der Grund, warum wir Ereignisse in unserem Leben oft dem Zufall, Glück, Wahrscheinlichkeit und Chaos zuschreiben.
+
+Wenn man das Naturgesetz in dem Maße studiert, wie ich es getan habe, dann war es automatisch, dass ich der Quelle der Grenzen und der Architektur begegnete, die ich in diesem Ding erlebte, das ich mein Leben nannte. Dieses „Ereignis“ war so tiefgreifend, dass es mich für immer veränderte und mich frei und glücklich machte. Noch wichtiger ist, dass ich meine Verbindung zur Natur gefunden habe, wer ich war und was noch wichtiger ist, meine Bestimmung.
+
+
+Es erforderte eine Suche nicht außen, sondern innen. Wie könnte ich glücklich werden, wenn ich die Wahrheit, dass ich nicht glücklich bin, nicht akzeptiere? Es war, als ich aufhörte, mich selbst zu täuschen. Ich war so aufgeregt, dass ich anfing, den Leuten zu erzählen, wie ich zu diesem Punkt gekommen war. Wenn sie vorher dachten, ich wäre verrückt, dann waren sie sich jetzt sicher. Ich konnte es den Leuten nicht einfach sagen. Es dauerte Jahre des Studiums, um herauszufinden, warum.
+
+
+Die Reise selbst offenbarte viel darüber, wie es mir ging und warum ich so lange brauchte, um an diesen Punkt zu gelangen. Ich begann zu dokumentieren, was erforderlich war. Ich schrieb Artikel, Geschichten und Gleichnisse. Mir schien, egal wie überzeugend oder logisch, ich bemerkte, dass jemand, der nicht bereit war, keine Chance hatte, es zu „erfahren“. Ich erkannte, dass es die Angst war, die die Leute davon abhielt, zuzuhören und dem, was ich sagte, einen Sinn zu geben. Ich richtete eine Website und ein Forum ein und fing an, Leute zu beraten, die sich in der richtigen Bereitschaft befanden. Ich untersuchte, was funktionierte und was nicht.
+
+Der Grund, warum Sie gerade hier sind, ist, dass Sie den ersten entscheidenden Schritt getan haben: Sie haben entschieden, dass Sie nicht glücklich sind und Ihr Leben nicht das ist, was Sie wollen, und einfach gefragt: Warum?
+
+* Die Antwort erfordert, dass Sie völlig unvoreingenommen zuhören und sich selbst auf einer Ebene vertrauen, die Sie noch nie zuvor getan haben.  
+    
+* Was Sie hören werden, mag dumm, verrückt und falsch erscheinen.  
+    
+
+Wir vermeiden das, weil wir Angst haben, dass wir und oft auch andere uns für verrückt halten. Der Witz ist, dass die Unfähigkeit zu akzeptieren, was präsentiert wird, Sie daran hindern wird, Ihren Wahnsinn zu heilen. Bevor man jemals hoffen kann, gesund oder nicht verwirrt zu werden, muss man zuerst vermuten, dass man verwirrt oder verrückt ist. Bis Sie den Mut dazu haben, verschließen Sie sich der Heilung.
+
+Wenn Sie sich verloren, verwirrt oder verrückt fühlen, dann sind Sie genau dort, wo Sie sein müssen. Die wirklich Verrückten leugnen es und haben sich der Illusion hingegeben, sie seien nicht verrückt.
+
+Dies ist die fünfte Iteration des Cheat Sheets. Es wurde über 12 Jahre entwickelt, wobei lebenslange Beobachtungen und Überarbeitungen einbezogen wurden, um es für Sie nützlich zu machen. Es wurde als der schnelle Weg zur Erleuchtung beschrieben. Es ist nicht so, dass es schwierig ist, aber das Hauptproblem ist, dass es einfach ist und wir eine Menge Kontext brauchen, um es durchzustehen. Stellen Sie sich vor, Sie springen von einer Klippe. Alles, was erforderlich ist, ist sich einfach zu entspannen und nach vorne zu fallen, aber die Angst zu bewältigen ist die Hürde.
+
+Es wird von Ihnen verlangen, alles, was Sie über das Leben zu wissen glauben, beiseite zu legen und wirklich offen zu sein. Diejenigen, die diese Methodik wirklich ausprobiert und angewendet haben, wurden vollständig verändert. Sie können den Unterschied nicht beschreiben, aber sie wollen nicht wieder so werden, wie sie waren. Hier sind einige Dinge, über die Sie wirklich nachdenken sollten, bevor Sie beginnen, also seien Sie ehrlich zu sich selbst und nehmen Sie sich etwas Zeit:
+
+Sind Sie glücklich? Möchten Sie u lieber Recht haben als glücklich sein? Wenn Sie  es für sich ändern könnten, würden Sie es ändern?  Was ist, wenn es nicht darum geht, dass Ihre Logik falsch ist, sondern Ihre Schlussfolgerungen darauf beruhen, dass Sie nicht vollständig beobachten konnten, was Ihnen in Ihrem Leben widerfahren ist?
+
+#### Das Leben enthält keine Lektion. Das Leben ist die Lektion.
+
+Selbst wenn Sie es jetzt nicht glauben, tun Sie einfach so, als würden Sie Ihr Leben als eine interaktive Lektion betrachten, die Sie zu diesem Zeitpunkt genau jetzt brachte. Bald werden Sie dabei sein, nicht mehr vorzutäuschen.
+
+
+
+## Ein neues Symbol: Ø
+
+Ich werde "On" (oder ahn) sprechen, um den Kreis mit einem vertikalen Schrägstrich anzuzeigen, der beim Lesen oben gezeigt wird, nur um es einfacher zu machen.
+
+Ø ist die mengentheoretische Darstellung einer „leeren Menge“ oder „Nullmenge“ und wird manchmal mit leeren geschweiften Klammern {} dargestellt. In der Gesamtheit des menschlichen Denkens und der Sprache existiert kein einziger Begriff, um die „Nicht-Wesenheit“ richtig darzustellen, die von Natur aus das Höchste und Autorität im Universum und außerhalb des Universums ist. Das Symbol Ø ist kein Abbild dieser Nicht-Entität. Dieses Symbol ist ein Platzhalter für das, was keinen Platzhalter hat. Das Symbol beschreibt all das, was das „Nichts“ nicht ist.
+
+Bestimmte Begriffe neigen dazu, für viele Menschen eine automatische Verständnisblockade zu schaffen. Menschen verlieren sich oft in einem Streit über Religion oder Semantik. Dies ist ein Grund für die Verwendung eines umgekehrten Symbols. Darüber hinaus ist es eine Tatsache, dass Ø weitgehend missverstanden und ignorant für eine Menge menschliches Leid, Frustration und Verdorbenheit verantwortlich gemacht wird. Es ist erforderlich, da Sie leben, und Sie benötigen etwas, an dem Sie sich festhalten können, da „nichts“ schwer fassbar ist. Man könnte es auch als „Schwarzes Ganzes“ betrachten. Ø ist die Wahrheit, die du suchst.
+
+
+
+### Ein Überblick über den Prozess der Erreichung des Heiligen Grals
+
+Die zwei Hauptschlüssel zur Realität sind einfach:
+
+#### 1. Entspannen Sie sich und genießen Sie die Show  
+    
+#### 2. Heiliger Gral: Ich werde dir (der höchsten Autorität, unter der unsere körperliche Existenz regiert wird: Ø) bedingungslos vertrauen, wenn du mir meine Fähigkeit entziehst, Menschen zu Opfern zu machen.  
+    
+
+Klingt auf den ersten Blick einfach, nicht wahr? Um jedoch zu wissen, warum es funktioniert, muss man fast jede Annahme überdenken, die uns über die Realität beigebracht wurde. Um dies zu erreichen, sind neue Werkzeuge erforderlich, oder genauer gesagt, wir müssen uns daran erinnern, wie wir die Werkzeuge verwenden, die wir als kleine Kinder erhalten haben, bevor wir uns entschieden haben, einen verwirrenden Pfad zu beschreiten, und sie sind:
+
+1. Den Fokus unserer Aufmerksamkeit auf den unmittelbaren Moment (jetzt) ​​richten  
+    
+2. Wissen, wie diese Aufmerksamkeit für den unmittelbaren Moment erforderlich ist, um uns verantwortungsvoll zu verhalten  
+    
+3. Zu wissen, warum Verantwortung das Leiden in unserer Erfahrung verringert  
+    
+4. Zu wissen, wie Verantwortungslosigkeit uns Macht, Fähigkeiten und Belohnungen entzieht  
+    
+5. Zu akzeptieren, dass die Beherrschung unseres Wissens über das natürliche/göttliche Gesetz und seine Anwendung in unserem Leben eine Voraussetzung für verantwortungsvolles Verhalten ist  
+    
+6. Zu wissen, wie wichtig Verantwortung und natürliches/göttliches Gesetz sind, um geistige Gesundheit, Kompetenz und die Überwindung von Verwirrung wiederzuerlangen  
+    
+7. Die Beherrschung von Wissen und Verantwortung ist der Schlüssel zur erfolgreichen Ausübung unserer Rechte  
+    
+8. Zu wissen, wie die Ausrichtung unserer Worte und Taten auf das natürliche/göttliche Gesetz durch die Ausübung von Rechten zu positiven Konsequenzen und der Manifestation von Macht in der Realität führt  
+    
+9. Zu wissen, dass die Ausübung von Rechten den Schutz der Rechte von uns allen auf diesem Planeten gewährleistet  
+    
+10. Das Erkennen der lebenswichtigen Notwendigkeit des Schutzes der Rechte aller auf diesem Planeten ist das wichtigste Ziel, mit dem wir alle jetzt in unserer Realität konfrontiert sind  
+    
+
+Zusätzlich zu diesen Schlüsselelementen implementieren wir neue Wege, uns selbst mit dem ewigen Wesen oder Bewusstsein vertraut zu machen, das in unserem Körper wohnt und durch unsere Realität wandert.
+
+1. Zu akzeptieren, dass im Kern unseres Wesens ein Lehrer ist, der unsere Realität nutzt, um uns die Lektionen zu geben, die wir hierher gelernt haben  
+    
+2. Akzeptieren des Lernprozesses und wie wir unsere Lektionen lernen  
+    
+3. Errichtung und Überwindung der Barrieren zur Errichtung der Mittel zur Wiederverbindung und Kommunikation mit dem ewigen Lehrwesen, das wir sind  
+    
+
+Die Liste scheint viel zu sein, aber es ist alles in dir und es wird durch das eigene Vertrauen in den Lehrer in dir offenbart: Ø.
+
+## Ein wenig über den Prozess für Wahrheitssucher / Ø-Sucher
+
+Mein bester Rat ist, sich zu entspannen. Sie sind bereits dabei. Eigentlich waren Sie schon immer dabei. Dies ist das erste, was Sie sich vielleicht als unmittelbare Lebenslektion ansehen sollten. Es ist nur ein „Gefühl“, dass es andere gibt, die etwas wissen, was Sie nicht wissen. All das wissen Sie bereits. Bis jetzt war es einfach nicht nötig, in Ihrem Bewusstsein zu sein. Es wird eine nuancierte Herangehensweise erfordern, damit Sie sich erlauben zu „sehen“. Es hilft nicht, zu versuchen, nach Ø zu „suchen“ oder „Ausschau zu halten“. Ø ist bereits hier. Man kann nicht sehen, was nicht gesehen werden kann.
+
+Ich werde einen anderen Ansatz versuchen und vielleicht können Sie sehen, worauf ich hinaus will. Ich zeige auf den Mond, lassen Sie  sich  nicht von dem Finger ablenken.
+
+Es ist, als hätte man ein Wort „auf der Zunge“. Je mehr Sie versuchen, sich zu erinnern, desto mehr blockieren Sie Ihren Prozess und desto mehr entzieht er sich Ihnen. Wenn Sie dann um 3:00 Uhr morgens entspannt sind, kommt es automatisch zu Ihnen. Dies liegt daran, dass der „Speicherserver“-Rückstand gelöscht werden durfte.
+
+Weil diese Dinge, über die hier gesprochen wird, so nuanciert sind, dass Sie nicht direkt darauf eingehen können. Der Grund dafür ist, dass das Ego (ich werde später darauf eingehen) die Jalousie an die gleiche Stelle bewegt, an der Ihre Augen hinsehen. Das ist seine Funktion. Ø wird von selbst kommen. Ich weiß, es wird. Sonst wärst du jetzt nicht hier.
+
+
+### Was funktioniert, ist Folgendes:
+
+#### 1. Vertrauen Sie darauf, dass Sie jetzt genau das bekommen, was Sie am meisten brauchen (wir wissen bereits, was Sie wollen). Das Problem ist, dass das Ego das auch tut und Leiden erzeugt, indem es zurückhält, was Sie wollen. Das, was Sie am meisten wollen, wird zurückgehalten und das, was Ihnen unangenehm ist, wird Sie heimsuchen. Die emotionale „Energie“ oder Konzentration, die Sie aufbringen, erzeugt ein Ungleichgewicht, und die Reaktion ist immer gegensätzlich. Für jede Aktion gibt es eine gleiche und entgegengesetzte Reaktion. Das gilt auch für Emotionen. Alle Emotionen sind Ego. Ja, sogar Liebe zu „fühlen“.  
+    
+#### 2. Achten Sie das, was du erlebst und nimm es ernst. Nichts ist unwichtig. Ø lässt Sie am Anfang etwas nach und lehrt nicht zwei Dinge gleichzeitig. Obwohl meine Lektionen komplex sind, sind sie eine nach der anderen. Ja, ich bin auch dabei, und ich mache das ewig so wie du. Was Sie gerade erleben, ist die Lektion.  
+    
+#### 3. Akzeptieren Sie, dass das, was Sie jetzt erleben, für die Lektion notwendig ist. Die Wahrheit gilt nur für Sie und nur jetzt. Machen Sie sich mit der Tatsache vertraut, dass die Wahrheit nicht übertragbar ist. Was jetzt die Wahrheit ist, kann sich im nächsten Moment ändern. Akzeptieren Sie, was Ihnen gezeigt wird und seien Sie intuitiv ehrlich. Je mehr Sie akzeptieren, desto größer ist Ihr Vertrauen, desto schneller werden Sie bekommen, was Ihnen beigebracht wird.  
+    
+#### 4. Achten Sie auf die Schleifen und die Redundanz. Sie werden dieselbe Lektion mit verschiedenen Szenarien und verschiedenen Personen wiederholen, bis Sie sie verstanden haben. Achten Sie bei jeder Iteration darauf, „was gleich ist“, und es wird auf das Ziel hinweisen. Dann werdenSie die Lektion direkt vor Ihnen erblicken. Dies wird normalerweise von einem Lachen und einem "Duh" begleitet  
+    
+#### 5. Am Anfang wird Ihnen beigebracht, „wie Sie belehrt werden“, und nicht, was Sie „anstreben“. Das kommt, wenn Sie den Lernprozess beenden und Ihrer Erfahrung vertrauen und sich damit wohler fühlen, wie es funktioniert. Dann entspannen Sie sich und die vorausgesetzten Lektionen vergehen immer schneller.  
+    
+
+Dann, wenn der richtige Zeitpunkt für Sie gekommen ist, wird Ø bei Ihnen aufgesucht, weil Sie einfach die Wahrnehmungsbarrieren beseitigt haben und es so aussehen wird, als ob Ø die ganze Zeit direkt vor Ihnen gewesen wäre.
+
+Wir sind hier, um zu lernen, und es ist für alte Menschen keine Überraschung, dass wir hier durchmachen, was wir durchmachen. Bewusstsein (Sie, ich, alle) testet Dinge durch Erfahrung. Es ist eine Sache, es zu wissen, und eine ganz andere, es selbst zu erleben.
+
+Wir existieren in einem Zustand reduzierter Energie, in dem das Wirt-Parasit/Herr-Sklave/Gläubiger-Schuldner-Paradigma erforscht wird. Dass Sklaverei keine „gute Idee“ ist, lernt man am besten, indem man erlebt, wie es ist, ein Sklave zu sein. Wir erforschen auch Verwirrung und Wahnsinn und lernen, wie wir aus einem Zustand von Wahnsinn oder Verwirrung zurückkehren können. Das Folgende ist eine Nuance der Verwirrung und ihr grundlegendes Merkmal:
+
+### Die Verwirrten sind die Letzten, die wissen, dass sie verwirrt sind.
+
+Wenn sie wüssten, dass sie verwirrt waren, würden sie sofort daran arbeiten, Abhilfe zu schaffen. Das ist eine andere Nuance: Verwirrung kann nicht durch Arbeit oder Anstrengung behoben werden. Die Hauptmethode besteht darin, anzuhalten und eine automatische Behebung zuzulassen. Hör auf zu denken und erlaube deiner Meinung, sich zu ändern. Das ist nicht so einfach, wie Sie denken.
+
+
+
+
+## Verantwortung
+
+Es sollte nicht überraschen, dass unser Wissen über die Mechanismen von Verantwortung und Rechenschaftspflicht unvollständig ist. Diejenigen mit dem Wissen nutzen die ohne dieses Wissen aus. Man muss wissen, dass man keine Verantwortung übernehmen kann, wenn man nicht fleißig die Aufmerksamkeit auf den unmittelbaren Moment oder das „gerade jetzt“ richtet. Sowohl die unbekannte hypothetische Zukunft als auch die gefilterte und konditionierte Erinnerung, die wir Vergangenheit nennen, sind ausschließlich das Reich des Egos. Das Selbst als Wahrheit existiert nur jetzt und kann weder in der Zukunft noch in der Vergangenheit verwirklicht werden, und daher ist dort auf alle wahre Macht zugegriffen. Wenn man sich nur auf den unmittelbaren Moment ohne Ablenkung konzentriert, bietet das allein schon großen Trost.
+
+Wir sind oft vom Jetzt abgelenkt und reagieren auf Dinge, die passieren könnten, oder auf eine Weise, die in der Vergangenheit funktioniert hat, aber nicht so, wie sie jetzt reagiert werden müssen. Wir können gerade jetzt vom Bus angefahren werden, indem wir einfach von unserer Angst abgelenkt werden, in Zukunft von einem Bus angefahren zu werden, oder nur weil wir in der Vergangenheit dem Bus nicht im Weg standen, heißt das nicht, dass wir ihm nicht im Weg stehen der Weg des Busses gerade.
+
+Die Entscheidung, auf der Grundlage einer akuten Beobachtung zu antworten oder nicht zu reagieren, und die Konzentration unserer Aufmerksamkeit auf das Jetzt stellen den besten Ansatz für eine korrekte Reaktion sicher. Das Wissen um das natürliche/göttliche Gesetz hilft bei seiner Anwendung, um sicherzustellen, dass man unerwünschte Folgen vermeidet, da das Gesetz durchgängig fehlerlos ist mit beobachtbarer Ursache-Wirkungs-Beziehung in der Realität, vorausgesetzt, man hat eine ausreichende Beherrschung der gesetzmäßigen Prinzipien. Beispiel: Wenn ich einen Stein in der Hand halte und ihn loslasse, sind wir ziemlich sicher, dass der Stein fallen wird. Das bedeutet nicht, die Zukunft vorherzusagen, sondern lediglich ausreichende Kenntnisse darüber zu haben, wie das Gesetz der Schwerkraft funktioniert, wenn wir es auf diese Situation anwenden.
+
+Sich der Wirkung bewusst sein, die unsere Reaktionen in Bezug auf andere haben. Indem wir sicherstellen, dass wir das Richtige tun, indem wir nicht gegen ihren Willen verstoßen, wird dies als verantwortungsbewusstes und kompetentes Verhalten angesehen.
+
+Außerdem müssen wir wissen, dass wir die Pflicht haben, uns angemessen um diejenigen um uns herum zu kümmern, die nicht verantwortlich sind. Wenn ein Kleinkind allein auf dem Seitenstreifen einer stark befahrenen Autobahn sitzt und Sie nichts tun, dann sind Sie verantwortlich, wenn es verletzt wird. Viele um uns herum sind in der Position des Kleinkindes und wir müssen dafür sorgen, dass sie vor ihrer eigenen Inkompetenz geschützt werden.
+
+Angenommen, wir haben einen Treuhandfonds oder eine Erbschaft, die auf uns wartet? Es kann uns nicht gegeben werden, wenn wir nicht kompetent oder verantwortlich sind, den Trust ordnungsgemäß zu verwalten. Wir müssen diese Kompetenz demonstrieren, bevor wir das erhalten können, was uns gehört.
+
+Rechenschaftspflicht bedeutet, die Konsequenzen zu akzeptieren, entweder positiv oder negativ, wenn wir als Reaktion auf das handeln, was gerade passiert. Wenn man nicht rechenschaftspflichtig ist, kann man nicht hoffen, weitere Rechte auszuüben, da dieser Mangel an Verantwortungsbewusstsein der Natur der Ausübung von Rechten innewohnt, da es sich überhaupt nicht um ein Recht handelt, sondern um einen Fehler, der zu einer Verletzung der Rechte von Ein weiterer.
+
+### Vertrauen
+
+Man muss dem Selbst vertrauen und dieses Vertrauen muss auf einem hohen Niveau sein, normalerweise jenseits dessen, womit wir uns wohl fühlen. Wenn wir im Moment nicht das Vertrauen besitzen, das für die Annahme des Vertrags erforderlich ist, wird unsere Bereitschaft, den Vertrag einzugehen, das hervorbringen, was ich „Vertrauensaufbauübungen“ nenne. Dies sind Ereignisse in der eigenen Lebenserfahrung, die einen dazu zwingen, ein höheres Vertrauen in sich selbst zu setzen, indem sie dem Ego die Fähigkeit nehmen, die Konsequenzen einer Entscheidung zu kennen, die es treffen muss. Wenn man sich weigert, die Wahl zu treffen, wird es zunehmend schwieriger, eine Wahl zu treffen. Wenn Sie diese Übungen nicht durchmachen, wird der Vertrag nicht angenommen. Hier kann die Hilfe Anderer eine unschätzbare Hilfe sein, um die Blindheit des Egos hinter sich zu lassen. Es wird keine Antwort auf die Wahl geben, aber es kann das Vertrauen in den Prozess stärken.
+
+Es ist auch nützlich, eine Reihe persönlicher Zeichen festzulegen, die das Selbst verwenden kann, um den Fortschritt in einer einzelnen Lektion anzuzeigen. Wenn man die Indikatoren akzeptiert, wird das Selbst sie verwenden, um einen über seine Position in der Lektion und Hinweise zum Navigieren in der Lektion zu informieren. Dies ist ein einfacher Zahlencode und man muss die Bedeutung der Zahlen kennen. Sie kommen als Zahlenfolgen, die man in seinem Leben um sich herum sieht.
+
+#### * 111,1111,101,121,131,141,1001 usw. zeigt an, dass eine zu lernende Lektion verfügbar ist.  
+    
+#### * 222 oder die ähnlichen Variationen oben zeigen an, dass nach Annahme der Lektion, die durch die 111 angezeigt wird, die Lektion darauf wartet, in der Lebenserfahrung eingerichtet zu werden, um Kontinuität zu gewährleisten. Irgendwann Menschen und Dinge müssen positioniert werden, um den Unterricht sinnvoll zu gestalten, und dafür ist Zeit erforderlich. Diese Einrichtung ist möglicherweise nicht erforderlich, und Sie können mit der 222 andere Nummern erhalten.  
+    
+#### * 333 bedeutet „Ja“ oder Sie sehen ein positives Beispiel.  
+    
+#### * 444 zeigt „Nein“ an oder Sie sehen ein negatives Beispiel oder was Sie nicht tun sollten.  
+    
+#### * 555 zeigt an, dass die Lektion eine Meisterungslektion ist und der erfolgreiche Abschluss eine bedeutende Veränderung im eigenen Leben bedeutet, wenn sie gelernt wird. Erwarten Sie, dass die Lektion mit mehr Stress und mehr Schwierigkeiten beim Navigieren erheblich schwieriger wird.  
+    
+#### * 666 zeigt an, dass sich die Lektion auf den fleischlichen oder physischen Bereich (äußeres) bezieht  
+    
+#### * 777 zeigt an, dass sich die Lektion mit dem spirituellen Bereich (innerem) befasst  
+    
+#### * 888 zeigt an, dass die Lektion abgeschlossen ist und dass alles, was zwischen dem 111 und dem 888 passiert ist, alle Lektionselemente enthält, und beschränken Sie Ihre Aufmerksamkeit auf das, was zwischen dem 111 und dem 888 passiert ist.  
+    
+#### * 999 bedeutet, dass die Lektion, ihr Zweck und ihre Bedeutung vollständig gelernt wurden      
+#### * 111 beginnt einen neuen Unterrichtszyklus.  
+    
+
+Die Zahlen kann man nicht übersehen. Die Benachrichtigung erfolgt durch die Steuerung der Aufmerksamkeit. Die Unterrichtsdauer kann je nach Komplexität zwischen Stunden und Monaten liegen. Die Lektionen werden in der Regel länger, je mehr Lektionen gelernt werden. Dies ist nur ein einfaches Beispiel, und man kann beginnen, mehr Symbole und Zeichen zu entwickeln, wenn jemand, der ein Symbol mehrmals sieht, einfach fragt, was es bedeutet, und erwartet, dass ihm diese Antwort durch seine Lebenserfahrung gezeigt wird. Zwischen dem Ende einer Lektion und dem Beginn der nächsten liegen oft Ruhezeiten.
+
+
+### Wiedererlangung des Verstandes
+
+Naturgesetz (Natural Spiritual Law, Gesetze auf der Ebene der Seelen) und Verantwortung sind die einzigen Mittel, um sowohl den Wahnsinn als auch die Verwirrung zu lindern, die diesen Wahnsinn verursacht. Es liegt daran, dass Ø das Naturgesetz durchsetzt und Ø nichts gegen Ihren Willen erzwingen wird. Und ich weiß schon, was du denkst: Ja richtig! Um das Naturgesetz zu verstehen, müssen wir mit den Komponenten dessen beginnen, was Sie wirklich sind. Wir sind Bewusstsein und das Bewusstsein selbst ist in zwei Komponenten gespalten.
+
+Wir sind eine individuell unterteilte beobachtende Facette von Ø. Ihr Leben besteht darin, Bewusstsein durch ein begrenztes Werkzeug zu erfahren. Es ist nicht möglich, dass Ø vollständig durch einen Fleischanzug ausgedrückt wird. 🔴 Es würde mehr Leben kosten, als das Universum aufnehmen kann. Jeder von uns macht seine Arbeit, um spezifische Erfahrungen für Ø festzuhalten.
+
+Ego ist der physische Ausdruck dieser begrenzten Facette von Ø. Es ist die Simulation des wahrgenommenen Universums, in der du dich befindest. Es ist Dualität oder die Illusion von „anderen“. Es sind all deine Gedanken, all deine Gefühle, alle Handlungen und alle Ereignisse. Sogar die Wahrnehmung von Zeit und Volumen ist nur Ego. Die Schnittstelle für diesen Aspekt ist die linke Gehirnhälfte.
+
+Im Verdrängungsprozess ist Egos andere Funktion, Ego handelt als Abwehrmechanismus. Das Ego unterdrückt oder verbirgt unangenehme Erfahrungen, um 🔴 "den Beobachter“ vor der Härte zu schützen.
+
+Diese Erinnerungen werden oft unter anderen Erinnerungen begraben. Das Ego weigert sich, sich auch nur an die Existenz von Erfahrungs zu erinnern und macht sie für den Beobachter unsichtbar. Daher ist der Beobachter nicht in der Lage, die negativen Lebenserfahrungen für die positiven Zwecke zu verarbeiten, für die sie vom Selbst beabsichtigt und manifestiert wurden. Das scheinbare Paradoxon des Egos, das sowohl als Verursacher von Schmerzen als auch als Beschützer dient, wird gelöst, indem man erkennt, dass das Ego keine eigene reale, substantielle Existenz hat.
+
+Die Vergangenheit ist ein Konstrukt erlernter Muster. Es gibt nichts Wirkliches zu schützen, da es keinen wirklichen Feind und keinen wirklichen Tod gibt. Daher stellt das Ego sein eigenes Überleben auf die höchste Priorität (denn die Entdeckung der gutartigen Natur der Existenz würde es seiner Macht und möglicherweise seiner Funktion berauben), und zwar durch eine Vielzahl von projizierten Feinden. Das Ego ist in der Lage, sehr intensive, realistische Höllenerfahrungen für den Beobachter zu Lernzwecken zu projizieren.
+
+Das zuvor erwähnte Selbst ist der spirituelle oder energetische Aspekt oder das Konstrukt unseres Bewusstseins. Selbst ist Einheit oder Einssein. Wo das Ego eine Identität und eine Quantität im Universum hat, ist das Selbst der Teil von uns, der sich außerhalb des Physischen befindet. Es lebt durch die rechte Gehirnhälfte. Es regelt den inspirierenden Kanal, durch den unser Bewusstsein Zugang zum Geist von Ø erhält. Durch das Selbst ist alle Vernunft bekannt, wenn sie vom Ego benötigt wird. Nicht, wenn es vom Ego gewollt ist.
+
+Das Ego kommuniziert in Bezeichnungen oder Definitionen, die die Existenz von Körperlichkeit erfordern. Das Selbst kommuniziert in Symbolen, die eine Bedeutung und einen Zweck haben, die über das Physische hinausgehen.
+
+Es ist hilfreich, es wie ein Videospiel zu betrachten, bei dem eine Seite das Spiel aufbaut, das die andere spielt. Dem Ego fehlen die Sinne oder die Logik, um das Selbst kognitiv zu verstehen oder zu erkennen.
+
+Unsere Herausforderungen haben mit dem Alter zu tun, in dem wir uns befinden. Ø hat diese Dualität erschaffen und uns dann vom Selbst getrennt, um zu erfahren, wie es sich anfühlt, von Ø getrennt zu sein. Es war auch nützlich zu erfahren, wie es ist, einen Anfang und ein Ende zu haben. Das gibt es in der Einheit nicht. Im Selbst sind wir eins in der Ewigkeit. Dies erfordert ein eher begrenztes Zeitgefühl.
+
+Dies ist die Eisenzeit und die Menschen des Altertums wussten, dass wir in diese Periode des extrem linkshirnigen Egos eintreten würden. Dies ändert sich jedoch. Aus diesem Grund sind Sie jetzt hier. Wir haben uns schlafen gelegt oder uns selbst einen Schabernack gespielt und jetzt ist es an der Zeit, aufzuwachen und die versteckte Kamera zu enthüllen. Alles ist zyklisch.
+
+Wenn du in den Spiegel schaust, ist alles, was du im Physischen siehst und erfährst, Ego. Ø ist der von der Quantenmechanik angezeigte Beobachter, nicht das Ego! Das Ego hat die Absicht, aber das Ego kontrolliert nicht das Spiel, und es ist nicht das, was die Lebenswellenform in ein Teilchen kollabiert, das wir als "jetzt" kennen. Das Selbst ist das Element, das die Position und den Zeitpunkt des resultierenden Teilchens bestimmt. Der Quantenphysiker schaut in den Spiegel und denkt, das Bild sei der Beobachter. Daher täuscht sich das Ego selbst, indem es denkt, dass es das ist, was kontrolliert, obwohl das Ego in Wirklichkeit nur der Akteur ist und der Regisseur oder das Selbst dem Akteur (Ego) sagt, was zu tun ist. Dies ist der Fehler, der den Hauptfehler in den Lehren des Gesetzes der Anziehung verursacht.
+
+Ein weiterer primärer Quanteneffekt ist, dass gemessen wurde, dass oft Effekte ihrer Ursache vorausgehen. Dies ist wichtig, da dies der primäre Mechanismus ist, der es dem Ego ermöglicht zu denken, dass es die Kontrolle hat. Der "Wille, etwas zu tun", wird in Egos Zeitillusion so projiziert, dass "der Wille" der "Handlung" vorauszugehen scheint. Dies macht Ego zu einem hervorragenden Lernwerkzeug, da alle Dinge spontan erscheinen, obwohl sie in Wirklichkeit unter der strengen Kontrolle des Selbst in völliger Sicherheit stehen.
+
+Das Naturgesetz ist das Mittel, durch das alle Dinge geschehen, und ist so strukturiert, dass es diese Lektion vermittelt.
+
+Der Grund, warum ich das anspreche, ist, dass das Ego endlos Kompromisse eingehen wird, um die Illusion aufrechtzuerhalten, dass es die Kontrolle hat. Zu dieser Zeit werfen die Menschen die bestehende List in großer Zahl ab und das Ego gerät in Panik und hält Schritt, indem es die Illusionen aufrechterhält, da dies eine seiner Hauptfunktionen ist. Es ist der Betrüger, der Illusionist und erlaubt uns, in scheinbarer Getrenntheit zu existieren.
+
+Unsere Lektion erforderte eine subtile Änderung gegenüber dem letzten Zeitalter, damit wir dieses neue Paradigma erforschen und lernen konnten. Uns fehlte „nützliches“ Wissen darüber, was Wahnsinn ist. Dies beseitigte effektiv die primäre Barriere zum Leiden, denn wenn man ein nützliches Wissen über Wahnsinn hat, kann man Leiden vermeiden.
+
+Wir bekräftigen Prinzipien des Naturrechts, indem wir etablierte Präzedenzfälle oder ein Urteil im Gerichtsverfahren anwenden. Wenn eine der beiden Methoden angewendet wird, leidet jemand. Um die Auswirkungen eines „Fehlers“ zu kennen, muss jemand zuerst gehen und „einen für das Team nehmen“. Unser Wahnsinn ist so tief, dass wir es oft immer wieder tun müssen und jedes Mal ein anderes Ergebnis erwarten. Das Naturgesetz ist konsistent.
+
+Eine nützlichere Definition von Wahnsinn ist die Unfähigkeit, die Wahrheit wahrzunehmen. In Wahrheit meine ich Ø. Wenn wir diesen spezifische Scheuklappe haben, dann wissen wir nicht, dass das, was wir tun werden, entweder Nutzen oder Leid hervorrufen wird. Wenn wir darauf achten und das Leiden als notwendig akzeptieren und unsere Verantwortung für jede Handlung, die Leiden hervorruft, dann werden wir in der Lage sein, die Lektion, die das Leiden lehrt, zu lernen und es zu vermeiden.
+
+Wenn wir nicht auf das achten, was passiert, oder nicht akzeptieren, was wir sehen (die Wahrheit), oder wir keine Verantwortung für unsere Handlungen übernehmen, dann bekommen wir die Lektion erneut und das Leiden wird größer.
+
+Erhöhtes Bewusstsein ist erhöhte Aufmerksamkeit, erhöhte Akzeptanz und erhöhte Verantwortung, und dies ermöglicht das Lernen von Lektionen ohne die negative Verstärkung durch erhebliches Leiden.
+
+
+### Die Hauptelemente des Wahnsinns sind:
+
+1. Schwelgen Sie in der Fiktion und geben Sie dem, was nur in unserem Geist existiert, Kraft  
+    
+2. Ein Mangel an konstruktiver Verantwortung, da wir nicht reagieren (apathisch)  oder unsere Antwort nicht angemessen ist (Verantwortungslosigkeit)  
+    
+3. Trennung von der Einheit  
+    
+4. Unkenntnis des Naturgesetzes  
+    
+
+Man kann Wahnsinn nicht meistern, ohne zuerst Wahnsinn erlebt zu haben. Es ist eine Illusion, die höllisch weh tut. Sie müssen sich selbst verzeihen, dass Sie verrückt sind, denn dies war Ihr Ziel und es ist notwendig. Machen Sie sich etwas locker. Wenn Sie sich  selbst nicht vergeben können, dann kann Ihnen auch keiner der wahrgenommenen anderen in Ihrer Erfahrung vergeben. Es liegt an Ihnen. Keine Notwendigkeit, Punkte zu halten. Wenn Sie denken, Ihr Leben sei ein Rennen oder eine Modenschau, dann lenken Sie sich nur von Ihrer eigenen Verwirrung ab.
+
+Verantwortungslosigkeit ist der Schlüssel zur Entrechtung. Geisteskranke haben keine Rechte, weil die Ausübung von Rechten Verantwortung erfordert. Die Verrückten sind inkompetent und die Gesunden haben die Verantwortung, sich um die Verrückten zu kümmern und sie zu behandeln.
+
+Gerichte und Regierungen halten uns in unserem Ausgangszustand für geisteskrank, ohne Verantwortungsbewusstsein und ohne Rechte, es sei denn, wir können beweisen, dass wir nicht geisteskrank sind. Das Problem ist, dass wir weiterhin glauben, dass Fiktion real ist. Wir kennen das Naturgesetz nicht, und wir wissen nicht, wie wir uns das antun. Deshalb ist die Welt zu einem Irrenhaus geworden, in dem die Geisteskranken von anderen behandelt werden, die selbst geisteskrank sind. Der letzte Versuch, unseren Wahnsinn zu heilen, wird darin bestehen, dass wir gefoltert werden, bis wir entweder aus ihm herausbrechen oder sterben. Schauen Sie sich um und willkommen in der "Modernen Zeit".
+
+Man muss wirklich wollen, dass sich sein Zustand ändert, bevor man überhaupt das Naturgesetz in Bezug auf Verträge lernen kann. Man muss bereit sein, Verantwortung für sein Leben zu übernehmen, bevor man überhaupt das Gesetz verlangt. Die Verrückten sind von Natur aus gesetzlos.
+
+Für mich war das Studium des Naturrechtsvertrags ausschlaggebend, denn um einen Vertrag abzuschließen, muss man kompetent und daher verantwortungsbewusst sein. Der Vertrag selbst enthält viele der Elemente, wie Sie später sehen werden.
+
+### Die Mittel zur Kommunikation des Fluchtprozesses.
+
+Die linke Gehirnhälfte/das Ego kommuniziert in geschriebenen und gesprochenen Worten und deshalb sind Beschreibungen über die Existenz in der rechten Gehirnhälfte/dem Selbst schwierig, weil uns die Sprache fehlt, um es zu beschreiben. In Wirklichkeit erfordert der Mangel an Kontext, dass man das Paradigma der rechten Gehirnhälfte nicht als das beschreibt, was es ist, sondern als das, was es nicht ist. Um in das richtige Paradigma einzutreten, muss man nicht „etwas tun“, „etwas denken“ oder „etwas fühlen“, sondern es erfordert „Nicht-Tun“, „Nicht-Denken“ und „Nicht-Fühlen“. Dies ist ein passiver Akt der Verdrängung durch das Ego. Anders gesagt: Sie können die Tür nicht finden. Sie müssen anhalten und warten, bis die Tür Sie findet. Eine andere Möglichkeit, es zu verstehen, ist, dass das Selbst die egoische Struktur der Tür und einen Schlüssel für die linke Gehirnhälfte hervorbringt.
+
+Es braucht ein Selbst, um den Schlüssel umzudrehen und die Tür zu öffnen. Einmal vor der Tür, sind der Schlüssel und die Tür bedeutungslos. Das Paradigma der linken Gehirnhälfte ist wie ein „Raum“, eine Umhüllung, die man verlässt, anstatt dass der Übergang darin besteht, in irgendetwas „hineinzugehen“. Da das Ego es hasst, keine Kontrolle zu haben, ist es normalerweise ziemlich schwierig, wenn nicht sogar unmöglich, es so weit zu beruhigen, dass man in der Lage ist, das angemessene „Nicht-Handeln“ zu üben.
+
+Das Leben oder die Realität kann wie ein Film betrachtet werden. Wir identifizieren uns so sehr mit dem Schauspieler auf der Leinwand, dass wir zusammenzucken, wenn das Monster auftaucht. Als wir springen, erkennen wir, dass wir auf dem Sitz sitzen und Popcorn essen. Es braucht einen Ruck. Das Gesetz der Anziehung besagt, dass der Schauspieler die Handlung durch Absicht kontrolliert. Es ist tatsächlich der Autor und Regisseur des Films (Self), der die Handlung zum Wohle des Beobachters im Publikum steuert. Der Schauspieler ist nur die Puppe in einem Puppenspiel.
+
+
+
+
+### Das Gesetz
+
+Zuerst:
+
+Es kann keine wahre Erleuchtung und transzendente Wahrnehmung geben, ohne das Gesetz zu kennen.
+
+Nochmal:
+
+Es kann keine wahre Erleuchtung und transzendente Wahrnehmung geben, ohne das Gesetz zu kennen.
+
+Nur für den Fall, dass Sie das nicht verstanden haben:
+
+Es kann keine wahre Erleuchtung und transzendente Wahrnehmung geben, ohne das Gesetz zu kennen.
+
+
+Der Prozess, ein Gleichgewicht zwischen Ego und Selbst herzustellen, erfolgt durch die Anwendung des Naturgesetzes.
+
+Ich wusste nicht einmal, wo ich anfangen sollte, also las ich die Unabhängigkeitserklärung und die US-Verfassung. Es wurde gesagt, dass es auf biblischem Gesetz basiere, und ich wollte sehen, ob das der Fall ist. Nachdem ich diese Dokumente gelesen hatte, war ich noch verwirrter. Es schien ziemlich einfach, aber wenn sie das „Gesetz des Landes“ waren, was ist dann all dieses dumme Zeug, das in diesen Dokumenten keinen Bezug hatte. Ich ging zur Bibel, um zu sehen, ob ich einen Sinn darin erkennen könnte.
+
+Ich hatte eine grundlegende Hürde, die ich zuerst überwinden musste, und diese ergab sich aus einer Studie darüber, was wir als die 10 Gebote kennen und was das große Problem an ihnen war. Ich hatte meine Spielerei mit der Religion und das war eine Mauer, als ich bemerkte, dass die Religion das Buch, mit dem sie sich so beschäftigt, oft nicht versteht. Ich schaute auf das Erste Gebot, um zu sehen, ob ich es verletzte: "Du sollst keine anderen Götter neben mir haben!". Die Leute sagten mir, das sei die Gründung des Monotheismus, aber für mich war es wichtig zu verstehen, warum ein „Höchstes Wesen“ Konkurrenz tolerieren muss. Warum nicht einfach einpacken und fertig. Im Verständnis dessen, was als „Götter“ bezeichnet wird. Ein "Gott" ist jeder Mann, jede Frau, jedes Objekt und sogar jedes mentale Konstrukt, das nicht Ø (Wahrheit) ist. Wenn wir einer Fiktion über uns mentale Macht verleihen, dann gibt Ø dieser Fiktion wirkliche Macht über uns, indem Ø unseren Willen anerkennt.
+
+Warten Sie!
+
+Bedeutete das, dass es meine Wahl war?!
+
+Ich habs geschafft?!
+
+Es war meine Verantwortung und es war nur meine eigene Dummheit?!
+
+Jawohl!
+
+
+Ich interessierte mich sehr für Dinge, mit denen ich das 🔴 mache. Dies führte zu einem weiteren wichtigen Aspekt des Rechts. Wenn Sie um Erlaubnis bitten, wird gesetzlich davon ausgegangen, dass Sie eine Erlaubnis benötigen. Das musste ich sofort streichen. Bald begann ich, fast magisch, all die Fiktionen zu entdecken, denen ich Macht über mich gab. Sobald ich das bemerkte, verloren sie die Kraft.
+
+Dies führte zu einer Untersuchung darüber was Souveränität ist,  und wie Souveränität mit Verantwortung, Rechten und dem Vertragsrecht zusammenhängt. Später entdeckte ich, dass ein Großteil meiner Interaktion im Universum auf Vertrag beruhte und ich keine konstruktive Definition dafür hatte, was ein Naturgesetzvertrag ist oder wie ein Vertrag Kraft und Kraft in der physischen Auswirkung manifestiert.
+
+
+Sobald ich eine nützliche Definition eines Naturrechtsvertrags hatte, nutzte ich mein Wissen über Verträge, um ein Gleichgewicht zwischen Selbst und Ego zu erzwingen. Am Ende dieses Dokuments finden Sie das Verfahren, durch das Sie geführt werden, um diese Änderung herbeizuführen. Die konsequente Schwächung des Egos führt zu einer permanenten Veränderung der Wahrnehmung der Realität, die es jedem ermöglicht in einem kontinuierlichen Zustand der Freiheit und des Schutzes zu existieren. Bestehende Wahrnehmungsmodelle lassen diesen Zustand nicht zu, und schlimmer noch, hindern Menschen aktiv daran ihn zu erreichen, durch die kontinuierliche Einmischung des Egos in den Wahrnehmungsfilterungsprozess.
+
+
+Gerade jetzt gilt das Naturgesetz im Universum, das wir als Realität wahrnehmen. Realität ist das, was "wirklich" ist. Wenn Fiktion für mich real ist, kann ich beginnen das Problem zu erkennen mit dem ich konfrontiert war.
+
+Wenn ich jeden Tag mit dem Osterhasen reden würde, würde ich mir auch nichts Wichtiges anvertrauen.
+
+
+
+
+
+Es gibt heute eine Reihe unterschiedlicher Realitätsmodelle, die uns seltsamerweise in die Lage versetzen, der Gnade eines „zufälligen“ Universums ausgeliefert zu sein, und uns als Sklaven des Willens einer vermeintlichen „Mehrheit“ darstellen eine kriminelle "Elite". Zum Beispiel neigt die Vorstellung, dass wir einen „absolut starken freien Willen“ haben, dazu, Zweck und Bedeutung aus unserem Leben zu entfernen, 🔴 während wir entscheiden dass alle Dinge durch unseren Willen manifestiert werden. Wenn wir (das Ego) keinen Zweck für das hat, was wir (das Ego) tun, wer hat sonst einen Zweck für das Ego?  Seltsamerweise neigt die Idee des starren Schicksals dazu, den gleichen Effekt zu haben. Wenn man irgendein Muster entlang des Spektrums zwischen absolut starkem freien Willen und vollständig geskriptetem Schicksal nimmt, dann verpasst man die dritte Option:  Indem die Realität zum Nutzen des Beobachters durch einen Stellvertreter erzeugt wird, so dass sie kontinuierlich und auf den Beobachter zugeschnitten ist, und wann 🔴 , der Betrachter braucht sie für alles, was er hier lernen und erfahren möchte. Die Paradigmen von Schicksal und freiem Willen bieten keinen Schutz vor der Mehrheit oder Elite und wenig Seelenfrieden oder Freiheit.
+
+Ich habe diese beiden Modelle getestet und sie scheinen wichtige Wahrheiten absichtlich vor uns zu verbergen. Wie können wir ein Werkzeug einsetzen, das uns absichtlich verborgen wurde? Ehrlich gesagt können wir das nicht, also liegt es an uns diese Werkzeuge zu finden bevor wir sie einsetzen können. Dies erfordert ein Umdenken darüber, was wir glauben wo wir sind, was wir glauben was wir sind, und was wir glauben warum wir hier sind.   Das Ziel ist es, mit einem gewissen Maß an Gewissheit zu erkennen, was wir sind, zu wissen wo wir sind, und zu wissen warum wir hier sind. Keine populäre Methode kann uns zu diesem Ziel führen, da es an uns liegt in eine andere Richtung zu gehen.
+
+
+
+
+### Die Art des Vertrages
+
+Zunächst muss man verstehen dass wir mit dem uneingeschränkten Recht existieren, einen Vertrag abzuschließen. Das ist ein wesentlicher Teil von uns, und das bedeutet unbegrenzt.  Dieses Recht kann in jede Richtung und zu jedem wahrgenommenen Zweck ausgeübt werden. Meistens haben wir als Spezies uns mit dem Ego zusammengetan, um uns im Austausch für unseren blinden Gehorsam gegenüber seinen Launen seine Illusion eines „starken freien Willens“ (der über unser eigenes Leben entscheidet) zu verschaffen. Diese Blindheit erstreckt sich auf unsere beinahen Gewissheit, dass unser Ego tatsächlich unser eigenes wahres Selbst sei.
+
+Ø hat keinen Grund, mit Ihnen zu umzugehen, wenn Sie nicht für sich selbst verantwortlich sind.
+
+Souveränität wird gewährt von Ø und wenn Sie sich bereitwillig dafür entscheiden, sie zu erhalten. Sie erhalten immer eine konkrete und überzeugende Benachrichtigung, weil Sie wissen müssen wann das 🔴 passiert.
+
+Souveränität beinhaltet die Verantwortung für den eigenen Körper und geht mit Rechten und vor allem Verantwortung für das eigene Verhalten einher. Da Souveränität auf Gegenseitigkeit beruht, wird sie vertraglich gewährt. Die Gewährung der Souveränität muss bereitwillig beantragt werden, da die gewährende Gewalt  ( Ø ) den Vertrag der die Souveränität begründet, nicht erzwingen oder eine Bereitschaft von Ihnen voraussetzen wird, wenn diese nicht offen zum Ausdruck gebracht wurde.
+
+Wenn man durch die Folgen einer Tat  jemanden zum Opfer macht, wird Macht gegen den wahrgenommenen Täter arrangiert, um das Opfer auf Kosten des wahrgenommenen Täters zu heilen. Dies ist die Quelle negativer Folgen in unserem Leben. Dies kann besonders unangenehm für diejenigen sein, die sich selbst zu Opfern machen. Dieses Prinzip durchdringt alle Ebenen unseres Lebens.
+
+Souveränität wird nicht gewährt, wenn Sie das zum Schutz Ihrer Souveränität erforderliche Gesetz nicht kennen. Der Unterricht im Naturrecht (Gesetze auf der Ebene der Seele) steht an erster Stelle.
+
+
+
+### Das natürliche Vertragsrecht
+
+Alle echten durchsetzbaren Verträge enthalten alle vier folgenden Elemente. Vollstreckbar bedeutet, dass Macht bei der Ausführung von Verträgen eingesetzt wird und Sie oder andere an Geschäftsbedingungen bindet. Wenn einem vermeintlichen Vertrag eines oder mehrere davon fehlen, wird er von Ø nicht durchgesetzt, es sei denn, Sie sind unwissend!
+
+Ein Naturrechtsvertrag muss enthalten:
+
+1. Ein Angebot - Man muss zuerst ein Geschäft erbitten oder präsentieren  
+    
+2. Eine Annahme - Ein anderer muss das Angebot oder den Deal annehmen  
+    
+3. Ein Austausch von echter Gegenleistung - Man tut etwas, wenn ein anderer etwas tut oder etwas für etwas  anderes hergibt.  Fiktion zählt nicht als real, und das darf man nicht vergessen! Dies war der Schlüssel zur staatlichen, religiösen und wirtschaftlichen Versklavung. Die Täter können dies im Naturrecht nicht wirklich ohne unangenehme Folgen tun, also schaffen sie eine fiktive Einheit oder eine "Fiktion des Rechts“, die dies 🔴 kann. Das Problem ist, dass wir verwirrt sind und denken, dass diese Fiktionen in den Köpfen der Menschen real sind und echte Macht über uns haben. Autsch!  
+    
+4. Vorliegen korrespondierender Willenserklärungen (Meeting of the Minds) - Ein Vertrag muss zwischen zwei Menschen geschlossen werden. Ein Stück Papier ist nur eine Dokumentation und an sich kein Vertrag, auch wenn darauf hingewiesen wird, dass dies der Fall ist. Ø hat einen Verstand und daher die Macht, einen Vertrag abzuschließen, und manifestiert die Macht der Durchsetzung. Legale Fiktionen haben keinen Verstand!  
+    
+    
+
+### Die tatsächliche Durchsetzung des Naturrechtsvertrags wird wie folgt vollzogen:
+
+1. Alle Verträge sind mündlich  
+    
+2. Ihr Wort ist Ihre Verpflichtung. Brich dein Wort und es ist eine Fessel. (Probieren Sie es aus!)  
+    
+3. ALLE VERTRÄGE SIND FREIWILLIG! Sie können nicht zu einem Vertrag gezwungen werden. Eine erzwungene Vereinbarung wird von  Ø ignoriert, und es wird keine Macht aufgestellt, um die Bedingungen durchzusetzen. Sie können nicht gezwungen werden, Ihre Rechte aufzugeben, aber Sie können sich durch Verwirrung dazu bringen, Ihre Rechte freiwillig aufzugeben (das heißt sich selbst zu versklaven). Praktischerweise wird uns das nicht beigebracht.  
+    
+4. BEI ALLEN VERTRÄGEN MUSS DER KÄUFER AUFPASSEN! Sie sind dafür verantwortlich, zu wissen worauf Sie sich einlassen.
+
+🔴 !!!
+ Sie müssen über angemessene Mittel verfügen, um die Vertragsbedingungen zu erfahren.
+ 
+ Sie müssen über angemessene Mittel verfügen die Vertragsbedingungen zu erfahren, damit der Vertrag entsteht. 
+-!!!
+ 
+  Dies ist ein weiterer Weg 🔴 den wir an unsere Ignoranz verlieren. Sie 🔴 sagen uns selten, was die Bedingungen sind, und wir fragen selten!  
+    
+5. Wenn Sie sich nach geltendem Recht so verhalten, als ob ein Vertrag in Kraft wäre, wird davon ausgegangen (sogar von Ø), dass tatsächlich ein Vertrag besteht. Wenn Sie sich vertragsgebunden verhalten, erkennt Ø die Situation als vertragsgebunden an. Es bedeutet nicht, dass ein tatsächlicher Vertrag in Kraft ist. Das bedeutet, dass es so aussieht, als wäre ein Vertrag in Kraft, weil Sie es nicht besser wissen. Wenn es wie eine Ente watschelt, wie eine Ente quakt und wie eine Ente aussieht, dann ist es eine Ente. Unser Heilung ist Bildung.  
+    
+
+
+### Andere wichtige Prinzipien des Naturrechts
+
+Das Geschaffene ist niemals mächtiger als sein Schöpfer. Ø erschafft das bewusste Ich; Ø ist mächtiger als Sie. Sie erschaffen Fiktion. Sie sind mächtiger als Fiktion.
+
+Unkenntnis des Naturgesetzes ist keine Entschuldigung. Wenn Sie Ø kennen, kennen Sie das Gesetz. 
+Hinweis!  Sagen Sie es langsam: Ignor-anz.  Diejenigen, die nicht im Besitz all ihrer Fähigkeiten sind oder sich von Ø abgewandt haben, werden nach dem Naturrecht von Gerichten als unfähig beurteilt und unterliegen der vorherrschenden gesetzlichen Autorität.
+
+**Um den Vertrag mit dem Heiligen Gral umzusetzen, nachdem Ø Sie von Ihrer Souveränität benachrichtigt hat, steht es Ihnen frei, einen Vertrag mit Ø zu schließen, indem Sie Folgendes sagen: „Ich werde Ihnen bedingungslos vertrauen, wenn Sie mir meine Fähigkeit jemandem zum Opfer zu machen, entziehen.**
+
+
+
+
+### Der Prozess der Ego-Abschwächung und des Neuausgleichs (Erleuchtung)
+
+Der Grad Ihres Vertrauens in Ø bestimmt die Anzahl der Schritte im Prozess und wie schnell sie umgesetzt werden. Es ist ganz persönlich und hängt davon ab, wo Sie sich innerhalb Ihrer Lebenserfahrung und der Stärke Ihres Egos befinden. Für Narzissten ist es schwierig und deshalb sind Viele darauf konditioniert, narzisstische Tendenzen auszudrücken. Es ist ein Mittel, um die Flucht herausfordernder zu machen. Wenn es keine Herausforderung war, warum dann?  Das narzisstische Ego wird nach Alternativen suchen, um seinen vermeintlichen Einfluss auf den „starken freien Willen“ zu behalten, und das ist der Versuchung für Ego-basierte „Erleuchtungs“-Prozesse. Das sind die Methoden, die darauf basieren, „etwas zu tun“, wie Meditation, Yoga und Kampfsport.
+
+
+Der Verlauf des Prozesses wird zunächst so beschrieben, wie ihn der typische Mann oder die typische Frau erleben könnte. Oft gehen wir das mit einem eher geringen Vertrauen, einer niedrigen Schmerzgrenze, viel Zweifel und viel Angst an. Es ist der Prozess selbst, der langsam das Vertrauen stärkt, unsere Fähigkeit erhöht, Schmerzen zu ertragen, unsere Zweifel reduziert und es uns ermöglicht, unsere Ängste in einem langsamen, angenehmen Fortschritt zu überwinden, mit dem wir schrittweise umgehen können. Der Prozess erfordert eine Interaktion mit denen, die vorangegangen sind, und seine Verstärkung erfordert die Unterstützung anderer, die danach in den Prozess eintreten, so dass die Prinzipien durch den Lehrer/Schüler-Prozess zementiert werden, bei dem man gleichzeitig Lehrer und Schüler ist. Dies schafft eine Zunahme menschlicher Verbindungen und Interaktionen, die eine kontinuierliche geometrische Wachstumskurve aufrechterhalten.
+
+
+#### Schritt eins:
+
+Eigentlich wurde das vertragliche Angebot für die Souveränität schon vor langer Zeit von Ihnen 🔴 gemacht, aber zu wissen dass es Ihnen möglich war diese Souveränität überhaupt anzunehmen, ist eine andere Sache.
+
+Die Tatsache, dass Sie dieser Wahrheit jetzt ausgesetzt sind, bedeutet dass Sie in der richtigen Position sind. Wir hatten in diesem bestimmten Zeitalter Lektionen zu lernen, also wurde dieser Prozess im Laufe der Jahrhunderte hier und da einigen wenigen Menschen offenbart, da er notwendig war und einen Zweck erfüllte. Ihre Bereitschaft ist eine Hürde, die Sie in einigen Fällen überwinden müssen. Um den Prozess zu starten, müssen Sie also einfach in Gedanken entscheiden, das Angebot anzunehmen. Wenn man sehen möchte, ob dies wahr ist und eine Bestätigung haben möchte, dass dies tatsächlich ein bewusster Lernprozess ist, braucht man nur um Bestätigung der Wahrheit zu bitten, und Ø wird sie nach Bedarf liefern, aber achten Sie genau darauf.  Sie sollten erkennen können, wann die Souveränität gewährt wird, da es sich anfühlt als würde eine Last von Ihnen abfallen. Sie können vor Glück lachen oder weinen und ein warmes Gefühl kann Sie überfluten. Manchmal wird es von einem nebligen, nebelartigen Erlebnis begleitet. So oder so werden Sie "es mit Gewissheit wissen".
+
+
+#### Schritt zwei:
+
+Nachdem der Souveränitätsvertrag akzeptiert wurde, beginnt eine Reihe verschiedener Prozesse, in keiner bestimmten Reihenfolge, da dies von Ihren besonderen Bedürfnissen abhängt.
+
+Viele haben Schwierigkeiten, etwas zu vertrauen, das sie nicht sehen können, also wird es notwendig, eine Reihe von Lebenserfahrungen zu schaffen, die Ihnen zeigen, dass hinter den Kulissen tatsächlich etwas Intelligentes arbeitet. Diese können sich als seltsame Zufälle, lebhafte Träume mit klaren Botschaften und Ereignisse in Ihrem täglichen Leben manifestieren, die so unwahrscheinlich sind, dass Sie sie bemerken (Synchronizitäten). Diese könnten zum Beispiel durch das Sehen von Zahlenfolgen wie 1111 ausgedrückt werden. Die Bildsprache wird in der für Sie persönlich sinnvollen Form vorliegen.
+
+
+
+
+Wenn der Souveränitätsvertrag akzeptiert wird, erleben Sie oft einen Strom vergangener Erinnerungen und Bilder von Ereignissen, die sich in Ihrer Vergangenheit ereignet haben. Wenn Sie nicht aufpassen, werden diese Bilder immer wieder abgespielt, bis Sie aufpassen und das Ereignis als wertvoll für Sie akzeptieren. Dies kann Sie die ganze Nacht wach halten, während Sie nicht wissen was passiert.
+
+
+Der Schlüssel liegt darin, zu erkennen, warum das Bild, Konzept oder Ereignis wichtig ist -  Was ist der Zweck dessen was passiert, oder warum wird es Ihnen gezeigt? Es gibt immer für alles einen Grund. Sie müssen es herausfinden. Wenn Sie nicht weiterkommen, müssen Sie um weitere Klärung bitten, und dann wird es wahrscheinlich in Träumen oder im wirklichen Leben durch reale Erfahrungen demonstriert. Hier werden Interaktionen wichtig, da Sie Ihr Ereignis mit jemandem teilen können der es objektiv betrachten kann, ohne das Ereignis mit einer persönlichen Voreingenommenheit zu verdrehen.
+
+
+Dieser Prozess des Lösens des Elements, auf das Ihre bewusste Aufmerksamkeit gelenkt wird, wiederholt sich immer wieder, bis der ganze Zweck für alle bedeutungsvollen Ereignisse in Ihrem Leben bestimmt ist. Es beginnt einfach mit neugierigen Fragen über das eigene Leben, die beantwortet werden. Dann bewegt sich der Prozess, um die Natur von unangenehmeren Ereignissen zu enthüllen. Ein Hauptziel des Prozesses ist es, langsam Vertrauen in den Prozess und insbesondere in Ø zu entwickeln und dann mehr Mut zu entwickeln, sich mit immer unbequemeren „dunklen Lebensinhalten“ auseinanderzusetzen. Dir werden Dinge offenbart, an Sie sich  vorher nicht erinnern konntest,  🔴 weil Sie neuen Mut haben, das Erlebte zu verarbeiten. Es ist ein bewusster Prozess, der Sie im angenehmsten Tempo durch Ihre Geschichte bewegt.
+
+
+Es muss jedoch anerkannt werden dass es einen Grund gibt, warum Sie diesen unangenehmen Erinnerungen und Ereignissen überhaupt nicht begegnet sind. Die Ereignisse können beängstigend sein, selbst wenn der Prozess ordnungsgemäß abläuft. Es hilft zu wissen dass es wichtig und notwendig ist, zur Beseitigung des emotionalen Stigmas führt und getan wird, damit Sie vor allem wahrgenommenen Schaden geschützt sind.
+
+Der Vertrag ist ein "Vehikel für Wandel". Sobald Sie den Prozess durchlaufen haben, werden Sie wissen, was wirklich passiert ist. Sie haben sich erlaubt aufzuwachen und verantwortlich zu sein. Der Vertrag ist eine physischer 🔴???    List oder ein Mechanismus, der Ihnen dabei hilft. Sie haben hohe Ansprüche, und Sie werden es nicht zulassen bis Sie wissen, dass Sie bereit sind. Das Naturgesetz wird dann ein inhärenter Aspekt Ihrer Erfahrung sein, da alle verantwortlichen Menschen das Gesetz kennen.
+
+
+
+
+
+### Dies kann Dir helfen zu erkennen was Du getan hast:
+
+Du bist ein ein einzigartiges grenzenloses Wesen von immenser Macht.
+
+Du hast Dich selbst „ausgetrickst“, um „hierher“ zu gelangen, und es erfordert, dass Du die Natur des „Tricks“ erkennst und Deine Bereitschaft zum Ausdruck bringst den „Trick“ rückgängig zu machen.
+
+Das hast Du erreicht.
+
+Du hast einen speziell entworfenen komplizierten und komplexen Käfig geschaffen, der Grenzen und Begrenzungen festlegt und eine sehr schmale Tür nach draußen lässt die von innen getarnt ist.
+
+Dein Bewusstsein trat in diesen Käfig und ließ das Meisten von Dir draußen.
+
+Du hast die Tür geschlossen.
+
+Du hast das Wissen sowohl über die Tür als auch über den Käfig selbst vor Dir  verborgen, es sei denn Du hättest einen bestimmten Prozess befolgt um die Tür zu enthüllen.
+
+Dann hast du Dir den Vorgang verheimlicht.
+
+Du hast keine andere Wahl als Dein Selbst um Hilfe zu bitten.
+
+Schauen wir uns den Vertrag des Heiligen Grals  an und sehen, warum er funktioniert:
+
+"Ich werde dir bedingungslos vertrauen, wenn du mir die Fähigkeit entziehst, jemanden zum Opfer zu machen."
+
+Die Pronomen "ICH", "ich" und "Du" sind eine Ego-Illusion im Käfig. Außerhalb des Käfigs beziehen sie sich alle auf ein einzelnes Wesen.
+
+Ein "Opfer" oder "Täter" existiert nur als Ich-Illusion im Käfig. Außerhalb des Käfigs ist es nur ein Wesen, das seine eigene Natur lernt.
+
+Du hast einen "Vertrag mit Dir selbst" geschlossen, indem du bereitwillig in den Käfig gestiegen bist. Das allein ist eine Ego-Illusion, da ein Einparteienvertrag weder in der Einheit noch in der Dualität existieren kann. Es ist Fiktion.
+
+Genauer gesagt, Sie haben sich einfach entschieden und es getan. Keinen Schaden, kein Fehltritt.
+
+Im Käfig erzeugt das Ego selbst die Ego-Illusion des Selbst-Betruges, die ebenfalls weder in der Dualität noch in der Einheit existieren kann. Es ist Fiktion.
+
+Wenn Sie den Vertrag annehmen, können Sie nicht vollständig im Käfig bleiben, weil Sie nach draußen gehen müssen, um den Vertrag zu erfüllen, denn Einheit ist dort "wo es keine Opfer gibt".
+
+Der Vertrag besteht auf Dauer. Denn wenn "Du" nicht „bedingungslos vertraust“, würdest Du jemanden zum Opfer machen, da "Du" gegen den Vertrag verstoßen würdest, und das ist ausdrücklich verboten, wenn "Du“ den Vertrag von vornherein annimmst.
+
+--
+
+Hat das geholfen?
+
+
+
+---
+:scroll: 
+
+
+
