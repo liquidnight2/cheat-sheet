@@ -1,12 +1,9 @@
 ## Spickzettel Mark V
 
-( [Cheat Sheet Mark V by Roage](http://www.roage.com/res/html/CheatSheetMarkV.html) )
-
-( translated by [liquidnight2](https://github.com/liquidnight2/cheat-sheet) )
+( [Cheat Sheet Mark V by Roage](http://www.roage.com/res/html/CheatSheetMarkV.html) translated by [liquidnight2](https://github.com/liquidnight2/cheat-sheet) )
 
 
-<img src="http://www.roage.com/img/hg.png" width="300" align="center" />
-
+<div align="center><img src="http://www.roage.com/img/hg.png" width="300"  /></div>
 
 
 
@@ -173,18 +170,23 @@ Weil diese Dinge, über die hier gesprochen wird, so nuanciert sind, dass Du nic
 
 
 
----
-:scroll: 
-
-
 
 
 
 ### Was funktioniert, ist Folgendes:
 
-#### 1. Vertrauen Sie darauf, dass Sie jetzt genau das bekommen, was Sie am meisten brauchen (wir wissen bereits, was Sie wollen). Das Problem ist, dass das Ego das auch tut und Leiden erzeugt, indem es zurückhält, was Sie wollen. Das, was Sie am meisten wollen, wird zurückgehalten und das, was Ihnen unangenehm ist, wird Sie heimsuchen. Die emotionale „Energie“ oder Konzentration, die Sie aufbringen, erzeugt ein Ungleichgewicht, und die Reaktion ist immer gegensätzlich. Für jede Aktion gibt es eine gleiche und entgegengesetzte Reaktion. Das gilt auch für Emotionen. Alle Emotionen sind Ego. Ja, sogar Liebe zu „fühlen“.  
+#### 1. Vertraue  darauf, dass Du jetzt genau das bekommen, was Du am meisten brauchst (wir wissen bereits, was Du willst). Das Problem ist, dass das Ego das auch tut und Leiden erzeugt, indem es zurückhält was Du willst. Das, was Du am meisten willst, wird zurückgehalten und das, was Dir unangenehm ist, wird Dich heimsuchen. Die emotionale „Energie“ oder Konzentration die Du aufbringst, erzeugt ein Ungleichgewicht und die Reaktion ist immer gegensätzlich. Für jede Aktion gibt es eine gleiche und entgegengesetzte Reaktion. Das gilt auch für Emotionen. Alle Emotionen sind Ego. Ja, sogar Liebe zu „fühlen“.  
     
-#### 2. Achten Sie das, was du erlebst und nimm es ernst. Nichts ist unwichtig. Ø lässt Sie am Anfang etwas nach und lehrt nicht zwei Dinge gleichzeitig. Obwohl meine Lektionen komplex sind, sind sie eine nach der anderen. Ja, ich bin auch dabei, und ich mache das ewig so wie du. Was Sie gerade erleben, ist die Lektion.  
+    
+
+    
+    
+#### 2. Achte auf das, was Du erlebst und nimm es ernst. Nichts ist unwichtig. Ø lässt Dich am Anfang etwas locker und lehrt nicht zwei Dinge gleichzeitig. Obwohl meine Lektionen komplex sind, sind sie eine nach der anderen. Ja, ich bin auch dabei, und ich mache das ewig so wie Du. Was Du gerade erlebst - ist die Lektion.  
+
+
+---
+:scroll: 
+
     
 #### 3. Akzeptieren Sie, dass das, was Sie jetzt erleben, für die Lektion notwendig ist. Die Wahrheit gilt nur für Sie und nur jetzt. Machen Sie sich mit der Tatsache vertraut, dass die Wahrheit nicht übertragbar ist. Was jetzt die Wahrheit ist, kann sich im nächsten Moment ändern. Akzeptieren Sie, was Ihnen gezeigt wird und seien Sie intuitiv ehrlich. Je mehr Sie akzeptieren, desto größer ist Ihr Vertrauen, desto schneller werden Sie bekommen, was Ihnen beigebracht wird.  
     
