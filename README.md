@@ -1,7 +1,11 @@
 ## Spickzettel Mark V
+
 ( [Cheat Sheet Mark V by Roage](http://www.roage.com/res/html/CheatSheetMarkV.html) )
 
-<img src="http://www.roage.com/img/hg.png" width="300" />
+( translated by (liquidnight2)[https://github.com/liquidnight2/cheat-sheet] )
+
+
+<img src="http://www.roage.com/img/hg.png" width="300" align="center" />
 
 
 
@@ -42,45 +46,49 @@ Der Spickzettel Mark V versucht, die Bedeutung einer Zusammenfassung zu vermitte
 Die Absicht besteht darin, ein schlechtes Werkzeug (Sprache) zu verwenden, um ein Kunstwerk zu schaffen, trotz der jämmerlichen Unzulänglichkeiten dieses schlechten Werkzeugs. Das laute Lesen des Spickzettels kann genau dabei helfen.
 
 
----
-:scroll: 
-
 
 
 ## Einführung
 
-Ich bin Roage, und ich bin genau wie Du ein Wesen aus Fleisch und Blut. Wie die Meisten sah ich das Leben als ein unfaires Rätsel an, das ich nicht begreifen konnte. Mein Leben war eine Sinnlosigkeit, einfach meinen Kopf gegen eine Mauer zu schlagen. Ich dachte buchstäblich, ich wäre in der Hölle, der Gnade unbewusster Dämonen in einem ständigen Zustand der Verwirrung, des Hasses, des Elends, der Krankheit und des Todes ausgeliefert.
+Ich bin Roage, und ich bin genau wie Du ein Wesen aus Fleisch und Blut. Wie die Meisten sah ich das Leben als ein unfaires Rätsel an, das ich nicht begreifen konnte. Mein Leben war ein sinnloses Kopf gegen eine Mauer zu stoßen. Ich dachte buchstäblich ich sei in der Hölle, der Gnade unbewusster Dämonen in einem ständigen Zustand der Verwirrung, des Hasses, des Elends, der Krankheit und des Todes ausgeliefert.
 
-Ich war ungefähr zwölf Jahre alt, als ich beschloss, dass die Welt ein Käfig voller unlogischer Tiere ist. Es war eine elende Zeit und alles, was ich wollte, war raus. Aus irgendeinem seltsamen Grund glaubte ich nicht, dass Selbstmord eine Lösung für meine Probleme war, da ich das Gefühl hatte, dass ich gleich wieder in dieser Falle landen würde. Ich dachte immer noch, dass es ein Wesen geben könnte, das die Menschen „Gott“ nennen, also bat ich in völliger Hoffnungslosigkeit und Verzweiflung um die Schlüssel aus der Hölle und würde alles tun, um herauszukommen.
+Ich war ungefähr zwölf Jahre alt als ich beschloss, dass die Welt ein Käfig voller unlogischer Tiere ist. Es war eine elende Zeit und alles, was ich wollte, war raus. Aus irgendeinem seltsamen Grund glaubte ich nicht, dass Selbstmord eine Lösung für meine Probleme war, da ich das Gefühl hatte, dass ich gleich wieder in dieser Falle landen würde. Ich dachte immer noch, dass es ein Wesen geben könnte, das die Menschen „Gott“ nennen, also bat ich in völliger Hoffnungslosigkeit und Verzweiflung um die Schlüssel aus der Hölle und würde alles tun um herauszukommen.
 
 30 Jahre hat es gedauert, bis es soweit war. Ich brauchte alles, um es herauszufinden, und das Lustige war, dass es so einfach war und es die ganze Zeit direkt vor mir war. Der Grund, warum es so lange gedauert hat, ist, dass ich nicht die Wahrnehmungsfähigkeit oder die kognitive Fähigkeit hatte, es zu akzeptieren oder zu verstehen. Noch lustiger ist, dass mir in diesen 30 Jahren Lektionen beigebracht wurden, die meine Wahrnehmung erweitern, die kognitiven Fähigkeiten vermitteln und das alles, während ich zu dem Schluss kam, dass ich nur ein Versager war, der von „Pech“ geplagt und einfach verdammt war.
 
 Als ich anfing, bekam ich die richtigen Werkzeuge für die Aufgabe. Bis zum Äußersten war ich narzisstisch, unsympathisch, bösartig, amoralisch, unehrlich, intelligent, neugierig, detailorientiert, aufmerksam, systematisch und skeptisch. Ich hatte keinen Respekt vor Autorität und zum Glück hatte ich einen gesunden Sinn für Humor und Junge, habe ich das jemals gebraucht! Im Grunde war ich ein Soziopath.
 
-Nach einer intensiven Ausbildung in Wissenschaft und später in Religion und etwas Philosophie kam ich zu dem Schluss, dass diese Institutionen, wenn sie den Ausweg kennen, entweder nichts sagen oder verwirrt sind. So oder so, ich wäre nicht dort, wo ich war, wenn es tatsächlich funktionieren würde.
+Nach einer intensiven Ausbildung in Wissenschaft und später in Religion und etwas Philosophie kam ich zu dem Schluss, dass diese Institutionen, wenn sie den Ausweg kennen, entweder nichts sagen oder verwirrt sind. So oder so, ich wäre nicht dort wo ich war, wenn es tatsächlich funktionieren würde.
 
-Ich hielt alles, was mir gesagt wurde, entweder für eine absichtliche Lüge oder für verdächtig. Ich kam zu dem Schluss, dass ich nur glauben würde, was ich mir selbst zeigen und beweisen konnte. Anfangs wusste ich wenig und es zeigte sich. Ich passte nicht hinein und hatte keine Geduld für Menschen. Für mich waren sie Objekte, einfach Subjekte meiner Experimente. Ich lehnte die Standardmodell-Kosmologie ab und sah Korrekturaktoren in der Physik als Produkt intellektueller Faulheit an. Ich habe meine eigenen Grundannahmen zurückgewiesen. Ironie und Zufall empfand ich jedoch als lehrreich und etwas, das man genau beobachten sollte.
+Ich hielt alles, was mir gesagt wurde, entweder für eine absichtliche Lüge oder für verdächtig. Ich kam zu dem Schluss, dass ich nur glauben würde, was ich mir selbst zeigen und beweisen konnte. Anfangs wusste ich wenig und es zeigte sich. Ich passte nicht hinein und hatte keine Geduld für Menschen. Für mich waren sie Objekte, einfach  Dinge ( 🔴 ?)  meiner Experimente. Ich lehnte die Standardmodell-Kosmologie ab und sah Schummel-Faktoren in der Physik als Produkt intellektueller Faulheit an. Ich habe meine eigenen Grundannahmen zurückgewiesen. Ironie und Zufall empfand ich jedoch als lehrreich und etwas, das man genau beobachten sollte.
 
-Jedes Mal, wenn ich auf eine Barriere traf, fing ich von vorne an. Nur das akzeptieren, was Sinn machte und mir direkt vorgeführt wurde. Es dauerte eine Weile. Ich entfremdete mich von meinen Freunden, meiner Familie und der Gesellschaft. Langsam habe ich einen Rahmen zusammengestellt, den ich in meiner Lebenserfahrung immer wieder getestet und getestet habe. Die Meisten dachten, ich sei verrückt. Ich war verrückt, das heißt, bis 4:44 Uhr morgens am 4. Juli 2006. Ein „Ereignis“ passierte, das aus einem siebenjährigen Studium des Gesetzes resultierte. Nicht das, was Anwälte praktizieren, sondern das Naturgesetz. Dieses hat eine echte Potenz wie Feuer brennt und Dinge herunterfallen, wenn sie fallen gelassen werden. Für mich war Verfahrensrecht Kauderwelsch. Ich lehnte die "Theorie des Rechtspositivismus" als etwas ab, das nur Idioten glauben würden.
+Jedes Mal wenn ich auf eine Barriere traf, fing ich von vorne an. Nur das akzeptieren, was Sinn machte und mir direkt vorgeführt wurde. Es dauerte eine Weile. Ich entfremdete mich von meinen Freunden, meiner Familie und der Gesellschaft. Langsam habe ich einen Rahmen zusammengestellt, den ich in meiner Lebenserfahrung immer wieder getestet und getestet habe. Die Meisten dachten, ich sei verrückt. Ich war verrückt, das heißt, bis 4:44 Uhr morgens am 4. Juli 2006. Ein „Ereignis“ passierte, das aus einem siebenjährigen Studium des Gesetzes resultierte. Nicht das, was Anwälte praktizieren, sondern das Naturgesetz. Dieses hat eine echte Potenz wie Feuer brennt oder so wie  Dinge herunterfallen, wenn sie fallen gelassen werden. Für mich war Verfahrensrecht Kauderwelsch. Ich lehnte die "Theorie des Rechtspositivismus" als etwas ab, das nur Idioten glauben würden.
 
-Bei diesem "Ereignis" erlebte ich zum ersten Mal: ​​keine Sorge, keine Angst. Ich genoss Frieden, Liebe und vor allem: Klarheit. Nachdem ich das Naturgesetz gelernt hatte, entdeckte ich, dass das Universum ein freundlicher Ort ist. Ich erlangte eine neue Fähigkeit, die es mir ermöglichte, Dinge auf eine neue Weise wahrzunehmen, die meine fünf Sinne nicht erforderte. Ich lernte wahrzunehmen, dass die Natur eine Intelligenz und ein Timing hat. Die Natur ist das, was alle Macht im Universum manifestiert, und es ist wichtig zu wissen, wie sie funktioniert, oder man kann nicht wissen, warum Dinge passieren. Diese Unkenntnis des Naturgesetzes ist der Grund, warum wir Ereignisse in unserem Leben oft dem Zufall, Glück, Wahrscheinlichkeit und Chaos zuschreiben.
+Bei diesem "Ereignis" erlebte ich zum ersten Mal: ​​keine Sorge, keine Angst. Ich genoss Frieden, Liebe und vor allem: Klarheit. Nachdem ich das Naturgesetz gelernt hatte, entdeckte ich, dass das Universum ein freundlicher Ort ist. Ich erlangte eine neue Fähigkeit, die es mir ermöglichte, Dinge auf eine neue Weise wahrzunehmen, die meine fünf Sinne nicht erforderte. Ich lernte wahrzunehmen, dass die Natur eine Intelligenz und ein Timing hat. Die Natur ist das, was alle Macht im Universum manifestiert, und es ist wichtig zu wissen wie sie funktioniert, oder man kann nicht wissen warum Dinge passieren. Diese Unkenntnis des Naturgesetzes ist der Grund, warum wir Ereignisse in unserem Leben oft dem Zufall, Glück, Wahrscheinlichkeit und Chaos zuschreiben.
 
 Wenn man das Naturgesetz in dem Maße studiert, wie ich es getan habe, dann war es automatisch, dass ich der Quelle der Grenzen und der Architektur begegnete, die ich in diesem Ding erlebte, das ich mein Leben nannte. Dieses „Ereignis“ war so tiefgreifend, dass es mich für immer veränderte und mich frei und glücklich machte. Noch wichtiger ist, dass ich meine Verbindung zur Natur gefunden habe, wer ich war und was noch wichtiger ist, meine Bestimmung.
+
 
 
 Es erforderte eine Suche nicht außen, sondern innen. Wie könnte ich glücklich werden, wenn ich die Wahrheit, dass ich nicht glücklich bin, nicht akzeptiere? Es war, als ich aufhörte, mich selbst zu täuschen. Ich war so aufgeregt, dass ich anfing, den Leuten zu erzählen, wie ich zu diesem Punkt gekommen war. Wenn sie vorher dachten, ich wäre verrückt, dann waren sie sich jetzt sicher. Ich konnte es den Leuten nicht einfach sagen. Es dauerte Jahre des Studiums, um herauszufinden, warum.
 
 
-Die Reise selbst offenbarte viel darüber, wie es mir ging und warum ich so lange brauchte, um an diesen Punkt zu gelangen. Ich begann zu dokumentieren, was erforderlich war. Ich schrieb Artikel, Geschichten und Gleichnisse. Mir schien, egal wie überzeugend oder logisch, ich bemerkte, dass jemand, der nicht bereit war, keine Chance hatte, es zu „erfahren“. Ich erkannte, dass es die Angst war, die die Leute davon abhielt, zuzuhören und dem, was ich sagte, einen Sinn zu geben. Ich richtete eine Website und ein Forum ein und fing an, Leute zu beraten, die sich in der richtigen Bereitschaft befanden. Ich untersuchte, was funktionierte und was nicht.
+Die Reise selbst offenbarte viel darüber, wie es mir ging und warum ich so lange brauchte, um an diesen Punkt zu gelangen. Ich begann zu dokumentieren, was erforderlich war. Ich schrieb Artikel, Geschichten und Gleichnisse. Es schien - egal wie überzeugend oder logisch -  ich bemerkte dass jemand, der nicht bereit war, keine Chance hatte es zu „erfahren“. Ich erkannte, dass es die Angst war, die die Leute davon abhielt, zuzuhören und dem was ich sagte einen Sinn zu geben. Ich richtete eine Website und ein Forum ein und fing an, Leute zu beraten, die sich in der richtigen Bereitschaft befanden. Ich untersuchte, was funktionierte und was nicht.
 
-Der Grund, warum Sie gerade hier sind, ist, dass Sie den ersten entscheidenden Schritt getan haben: Sie haben entschieden, dass Sie nicht glücklich sind und Ihr Leben nicht das ist, was Sie wollen, und einfach gefragt: Warum?
+Der Grund, warum Du gerade hier bist, ist, dass Du den ersten entscheidenden Schritt getan hast: Du  hast entschieden, dass Du  nicht glücklich bist und Dein Leben nicht das ist, was Du willst, und einfach gefragt: Warum?
 
-* Die Antwort erfordert, dass Sie völlig unvoreingenommen zuhören und sich selbst auf einer Ebene vertrauen, die Sie noch nie zuvor getan haben.  
+* Die Antwort erfordert, dass Du völlig unvoreingenommen zuhörst und Dir selbst auf einer Ebene vertraust, was Du noch nie zuvor getan hast.  
     
-* Was Sie hören werden, mag dumm, verrückt und falsch erscheinen.  
+* Was Du hören wirst mag dumm, verrückt oder falsch erscheinen.  
     
 
-Wir vermeiden das, weil wir Angst haben, dass wir und oft auch andere uns für verrückt halten. Der Witz ist, dass die Unfähigkeit zu akzeptieren, was präsentiert wird, Sie daran hindern wird, Ihren Wahnsinn zu heilen. Bevor man jemals hoffen kann, gesund oder nicht verwirrt zu werden, muss man zuerst vermuten, dass man verwirrt oder verrückt ist. Bis Sie den Mut dazu haben, verschließen Sie sich der Heilung.
+Wir vermeiden das, weil wir Angst haben, dass wir und oft auch andere uns für verrückt halten. Der Witz ist, dass die Unfähigkeit zu akzeptieren, was präsentiert wird, Dich daran hindern wird, Deinen Wahnsinn zu heilen. Bevor man jemals hoffen kann, gesund oder nicht verwirrt zu werden, muss man zuerst vermuten, dass man verwirrt oder verrückt ist. Bis Du den Mut dazu hast, verschließt Du Dich der Heilung.
+
+---
+:scroll: 
+
+
+
 
 Wenn Sie sich verloren, verwirrt oder verrückt fühlen, dann sind Sie genau dort, wo Sie sein müssen. Die wirklich Verrückten leugnen es und haben sich der Illusion hingegeben, sie seien nicht verrückt.
 
