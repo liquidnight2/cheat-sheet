@@ -29,20 +29,23 @@ Ich werde nun die Begrenzung des gesprochenen oder geschriebenen Wortes aufdecke
 Wenn ich "Torg" schreibe oder sage, ein Wort, von dem Du weder die Definition noch die Bedeutung kennst, dann ist das Dir unbekannt. Wenn ich "Torg" als einen flauschigen rosa Basketball definiere, dann hast Du nur einen flauschigen rosa Basketball. Ich habe es als "wie" einen Basketball definiert, der rosa und flauschig ist, aber bis Du einen in der Hand hälts, wird es für Dich immer ein pinkfarbener und flauschiger Basketball sein. Das Korrigieren dieser Bedeutungslücke ist einfach, weil ich Dir nur ein Torg in die Hand geben muss, und jetzt kannst Du die  Bedeutung von Torg kennen.
 
 
----
-:scroll: 
-
 
 
 ### Hindernis 2
 
-Abstrakte Begriffe wie Emotionen können nicht anhand eines physischen Beispiels vermittelt werden. Wörter wie „Liebe“, „Feier“ und „Sorge“ bedeuten für verschiedene Menschen unterschiedliche Dinge, je nachdem, wie sie diese Konzepte in ihrer persönlichen Erfahrung erlebt haben. Wenn ich die Worte „Die Feiertage“ verwende und erwarte, dass jeder weiß, dass ich mich auf „Hanukka und Neujahr“ beziehe, dann ist „Die Feiertage“ nicht nützlich, um die beabsichtigte Bedeutung zu vermitteln. Da wir alle unterschiedliche Erfahrungen mit allen Wörtern machen, führen die Wörter selbst oft zu Missverständnissen, weil die Einzigartigkeit unserer Erfahrung dazu führt, dass wir für jeden von uns subtile unterschiedliche Bedeutungen haben. Ich kann nicht davon ausgehen, dass „May Day“ für den Leser oder Zuhörer an sich etwas Positives bedeutet.
+Abstrakte Begriffe wie Emotionen können nicht anhand eines physischen Beispiels vermittelt werden. Wörter wie „Liebe“, „Feier“ und „Sorge“ bedeuten für verschiedene Menschen unterschiedliche Dinge, je nachdem, wie sie diese Konzepte in ihrer persönlichen Erfahrung erlebt haben. Wenn ich die Worte „Die Feiertage“ verwende und erwarte, dass jeder weiß, dass ich mich auf „Hanukka und Neujahr“ beziehe, dann ist „Die Feiertage“ nicht nützlich, um die beabsichtigte Bedeutung zu vermitteln. Da wir alle unterschiedliche Erfahrungen mit allen Wörtern machen, führen die Wörter selbst oft zu Missverständnissen, weil die Einzigartigkeit unserer Erfahrung dazu führt, dass wir für jeden von uns etwas unterschiedliche Bedeutungen haben. Ich kann nicht davon ausgehen, dass „May Day“ für den Leser oder Zuhörer an sich etwas Positives bedeutet.
 
-Hier ist die Herausforderung: Die Leute haben nicht nur wenig oder gar kein Wissen über das, was vermittelt wird, sondern es ist nicht greifbar, noch gibt es einfache Worte, die es den Leuten ermöglichen, sich auf ihre bereits bestehenden Erfahrungen zu beziehen. Das bedeutet, dass man sich hier der Beschränkung des Sprachgebrauchs bewusst sein und sich bemühen muss, die Bedeutung hinter den Wörtern zu erfassen, da sie höchstens auf die wahre Bedeutung hinweisen können. Helfen Sie also bitte dabei und lassen Sie sich nicht von dem Gesagten ablenken und konzentrieren Sie sich darauf, was die Worte in Ihnen hervorrufen. Wenn die Worte zu negativen Gefühlen führen, wurden die Worte nicht aufgenommen oder waren zu begrenzt, um leicht zu vermitteln, was gemeint war. Bitte verwenden Sie dies als Leitfaden, denn unter negativen Gefühlen erfasst man nicht die richtige Bedeutung. Es wird mehr Aufmerksamkeit und Selbstreflexion erfordern um zu bemerken, wann dies eintritt. Es wird vorgeschlagen, dass man einfach das negative Gefühl vorübergehen lässt und fortfährt oder versucht, die Worte durchzugehen bis das beabsichtigte positive Ergebnis wahrgenommen wird.
+Hier ist die Herausforderung: Die Leute haben nicht nur wenig oder gar kein Wissen über das, was vermittelt wird, sondern es ist nicht greifbar, noch gibt es einfache Worte, die es den Leuten ermöglichen, sich auf ihre bereits bestehenden Erfahrungen zu beziehen. Das bedeutet, dass man sich hier der Beschränkung des Sprachgebrauchs bewusst sein und sich bemühen muss, die Bedeutung hinter den Wörtern zu erfassen, da sie höchstens auf die wahre Bedeutung hinweisen können. Helfen Sie also bitte dabei und lassen Sie sich nicht von dem Gesagten ablenken und konzentrieren Sie sich darauf, was die Worte in Ihnen hervorrufen. Wenn die Worte zu negativen Gefühlen führen, wurden die Worte nicht aufgenommen oder waren zu begrenzt, um leicht zu vermitteln was gemeint war. Bitte verwende  dies als Leitfaden, denn unter negativen Gefühlen erfasst man nicht die richtige Bedeutung. Es wird mehr Aufmerksamkeit und Selbstreflexion erfordern um zu bemerken, wann dies eintritt. Es wird vorgeschlagen 🔴 , dass man einfach das negative Gefühl vorübergehen lässt und fortfährt oder versucht, die Worte durchzugehen bis das beabsichtigte positive Ergebnis wahrgenommen wird.
 
-Der Spickzettel Mark V versucht, die Bedeutung einer Zusammenfassung zu vermitteln mit dem viele keine nützliche Erfahrung haben, da wir noch nicht die Fähigkeiten haben, es zu schätzen. Bei den Versuchen Hilfsmittel zu entdecken kann man direktes persönliches Wissen gewinnen.
+Der Spickzettel Mark V versucht, die Bedeutung einer Zusammenfassung zu vermitteln mit dem Viele keine nützliche Erfahrung haben, da wir noch nicht die Fähigkeiten haben, es zu schätzen. Bei den Versuchen Hilfsmittel zu entdecken kann man direktes persönliches Wissen gewinnen.
 
 Die Absicht besteht darin, ein schlechtes Werkzeug (Sprache) zu verwenden, um ein Kunstwerk zu schaffen, trotz der jämmerlichen Unzulänglichkeiten dieses schlechten Werkzeugs. Das laute Lesen des Spickzettels kann genau dabei helfen.
+
+
+---
+:scroll: 
+
+
 
 ## Einführung
 
