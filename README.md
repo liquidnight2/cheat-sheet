@@ -214,48 +214,57 @@ Es sollte nicht überraschen, dass unser Wissen über die Mechanismen von Verant
 Wir sind oft vom Jetzt abgelenkt und reagieren auf Dinge, die passieren könnten, oder auf eine Weise die in der Vergangenheit funktioniert hat, aber  wir reagieren nicht so wie man jetzt reagieren sollte. Wir können gerade jetzt vom Bus überfahren werden indem wir einfach von unserer Angst abgelenkt werden, in Zukunft von einem Bus angefahren zu werden. Nur weil wir in der Vergangenheit dem Bus nicht im Weg standen, heißt das nicht dass wir ihm nicht gerade jetzt im Weg stehen stehen werden.
 
 
----
-:scroll: 
+Die Entscheidung auf der Grundlage einer akuten Beobachtung zu antworten oder nicht zu antworten, und die Konzentration unserer Aufmerksamkeit auf das Jetzt - stellen den besten Ansatz für eine korrekte Reaktion sicher. Das Wissen um das natürliche/göttliche Gesetz hilft bei seiner Anwendung, um sicherzustellen, dass man unerwünschte Folgen vermeidet, da das Gesetz durchgängig fehlerlos ist mit beobachtbarer Ursache-Wirkungs-Beziehung in der Realität. Vorausgesetzt man hat eine ausreichende Beherrschung der gesetzmäßigen Prinzipien. Beispiel: Wenn ich einen Stein in der Hand halte und ihn loslasse, sind wir ziemlich sicher dass der Stein fallen wird. Das bedeutet nicht, die Zukunft vorherzusagen, sondern lediglich ausreichende Kenntnisse darüber zu haben wie das Gesetz der Schwerkraft funktioniert, wenn wir es auf diese Situation anwenden.
 
 
-
-Die Entscheidung, auf der Grundlage einer akuten Beobachtung zu antworten oder nicht zu reagieren, und die Konzentration unserer Aufmerksamkeit auf das Jetzt stellen den besten Ansatz für eine korrekte Reaktion sicher. Das Wissen um das natürliche/göttliche Gesetz hilft bei seiner Anwendung, um sicherzustellen, dass man unerwünschte Folgen vermeidet, da das Gesetz durchgängig fehlerlos ist mit beobachtbarer Ursache-Wirkungs-Beziehung in der Realität, vorausgesetzt, man hat eine ausreichende Beherrschung der gesetzmäßigen Prinzipien. Beispiel: Wenn ich einen Stein in der Hand halte und ihn loslasse, sind wir ziemlich sicher, dass der Stein fallen wird. Das bedeutet nicht, die Zukunft vorherzusagen, sondern lediglich ausreichende Kenntnisse darüber zu haben, wie das Gesetz der Schwerkraft funktioniert, wenn wir es auf diese Situation anwenden.
 
 Sich der Wirkung bewusst sein, die unsere Reaktionen in Bezug auf andere haben. Indem wir sicherstellen, dass wir das Richtige tun, indem wir nicht gegen ihren Willen verstoßen, wird dies als verantwortungsbewusstes und kompetentes Verhalten angesehen.
 
 Außerdem müssen wir wissen, dass wir die Pflicht haben, uns angemessen um diejenigen um uns herum zu kümmern, die nicht verantwortlich sind. Wenn ein Kleinkind allein auf dem Seitenstreifen einer stark befahrenen Autobahn sitzt und Sie nichts tun, dann sind Sie verantwortlich, wenn es verletzt wird. Viele um uns herum sind in der Position des Kleinkindes und wir müssen dafür sorgen, dass sie vor ihrer eigenen Inkompetenz geschützt werden.
 
-Angenommen, wir haben einen Treuhandfonds oder eine Erbschaft, die auf uns wartet? Es kann uns nicht gegeben werden, wenn wir nicht kompetent oder verantwortlich sind, den Trust ordnungsgemäß zu verwalten. Wir müssen diese Kompetenz demonstrieren, bevor wir das erhalten können, was uns gehört.
+Angenommen, wir haben einen Treuhandfonds oder eine Erbschaft, die auf uns wartet? Es kann uns nicht gegeben werden, wenn wir nicht kompetent oder verantwortlich sind den Fonds ordnungsgemäß zu verwalten. Wir müssen diese Kompetenz demonstrieren bevor wir das erhalten können, was uns gehört.
 
-Rechenschaftspflicht bedeutet, die Konsequenzen zu akzeptieren, entweder positiv oder negativ, wenn wir als Reaktion auf das handeln, was gerade passiert. Wenn man nicht rechenschaftspflichtig ist, kann man nicht hoffen, weitere Rechte auszuüben, da dieser Mangel an Verantwortungsbewusstsein der Natur der Ausübung von Rechten innewohnt, da es sich überhaupt nicht um ein Recht handelt, sondern um einen Fehler, der zu einer Verletzung der Rechte von Ein weiterer.
+Verantwortlichkeit bedeutet die Konsequenzen zu akzeptieren, entweder positiv oder negativ, wenn wir als Reaktion auf das agieren, was gerade passiert. Wenn man nicht verantwortlich agiert, kann man nicht hoffen, weitere Rechte auszuüben.  🔴 Da dieser Mangel an Verantwortungsbewusstsein  der Ausübung von Rechten in der Natur innewohnt, handelt es sich überhaupt nicht um ein Recht, sondern um einen Fehler der zu einer Verletzung der Rechte Anderer führt.
+
+
 
 ### Vertrauen
 
-Man muss dem Selbst vertrauen und dieses Vertrauen muss auf einem hohen Niveau sein, normalerweise jenseits dessen, womit wir uns wohl fühlen. Wenn wir im Moment nicht das Vertrauen besitzen, das für die Annahme des Vertrags erforderlich ist, wird unsere Bereitschaft, den Vertrag einzugehen, das hervorbringen, was ich „Vertrauensaufbauübungen“ nenne. Dies sind Ereignisse in der eigenen Lebenserfahrung, die einen dazu zwingen, ein höheres Vertrauen in sich selbst zu setzen, indem sie dem Ego die Fähigkeit nehmen, die Konsequenzen einer Entscheidung zu kennen, die es treffen muss. Wenn man sich weigert, die Wahl zu treffen, wird es zunehmend schwieriger, eine Wahl zu treffen. Wenn Sie diese Übungen nicht durchmachen, wird der Vertrag nicht angenommen. Hier kann die Hilfe Anderer eine unschätzbare Hilfe sein, um die Blindheit des Egos hinter sich zu lassen. Es wird keine Antwort auf die Wahl geben, aber es kann das Vertrauen in den Prozess stärken.
+Man muss dem Selbst vertrauen und dieses Vertrauen muss auf einem hohen Niveau sein, normalerweise jenseits dessen, womit wir uns wohl fühlen. Wenn wir im Moment nicht das Vertrauen haben, das für die Annahme des Vertrags erforderlich ist, wird unsere Bereitschaft den Vertrag einzugehen das hervorbringen, was ich "Vertrauensaufbauübungen" nenne. Dies sind Ereignisse in der eigenen Lebenserfahrung die einen dazu zwingen, ein höheres Vertrauen in sich selbst zu setzen, indem sie dem Ego die Fähigkeit nehmen, die Konsequenzen einer Entscheidung zu kennen die es treffen muss. Wenn man sich weigert die Wahl zu treffen, wird es zunehmend schwieriger eine Wahl zu treffen. Wenn Sie diese Übungen nicht durchmachen, wird der Vertrag nicht angenommen. Hier kann die Hilfe Anderer eine unschätzbare Hilfe sein, um die Blindheit des Egos hinter sich zu lassen. Es wird keine Antwort auf die Wahl geben, aber es kann das Vertrauen in den Prozess stärken.
+
 
 Es ist auch nützlich, eine Reihe persönlicher Zeichen festzulegen, die das Selbst verwenden kann, um den Fortschritt in einer einzelnen Lektion anzuzeigen. Wenn man die Indikatoren akzeptiert, wird das Selbst sie verwenden, um einen über seine Position in der Lektion und Hinweise zum Navigieren in der Lektion zu informieren. Dies ist ein einfacher Zahlencode und man muss die Bedeutung der Zahlen kennen. Sie kommen als Zahlenfolgen, die man in seinem Leben um sich herum sieht.
 
 #### * 111,1111,101,121,131,141,1001 usw. zeigt an, dass eine zu lernende Lektion verfügbar ist.  
     
-#### * 222 oder die ähnlichen Variationen oben zeigen an, dass nach Annahme der Lektion, die durch die 111 angezeigt wird, die Lektion darauf wartet, in der Lebenserfahrung eingerichtet zu werden, um Kontinuität zu gewährleisten. Irgendwann Menschen und Dinge müssen positioniert werden, um den Unterricht sinnvoll zu gestalten, und dafür ist Zeit erforderlich. Diese Einrichtung ist möglicherweise nicht erforderlich, und Sie können mit der 222 andere Nummern erhalten.  
+#### * 222 oder ähnliche Variationen wie oben zeigen an dass nach Annahme der Lektion, die durch die 111 angezeigt wird, die Lektion darauf wartet in der Lebenserfahrung eingerichtet zu werden, um Kontinuität zu gewährleisten. Irgendwann müssen Menschen und Dinge  positioniert werden um den Unterricht sinnvoll zu gestalten, und dafür ist Zeit erforderlich. Diese Einrichtung ist möglicherweise nicht erforderlich, und man erhält mit der 222 andere Zahlen.  
     
-#### * 333 bedeutet „Ja“ oder Sie sehen ein positives Beispiel.  
+#### * 333 bedeutet "Ja" oder Sie sehen ein positives Beispiel.  
     
-#### * 444 zeigt „Nein“ an oder Sie sehen ein negatives Beispiel oder was Sie nicht tun sollten.  
+#### * 444 zeigt "Nein" an oder Sie sehen ein negatives Beispiel oder was Sie nicht tun sollten.  
     
-#### * 555 zeigt an, dass die Lektion eine Meisterungslektion ist und der erfolgreiche Abschluss eine bedeutende Veränderung im eigenen Leben bedeutet, wenn sie gelernt wird. Erwarten Sie, dass die Lektion mit mehr Stress und mehr Schwierigkeiten beim Navigieren erheblich schwieriger wird.  
+#### * 555 zeigt an, dass die Lektion eine Meister-Lektion ist und der erfolgreiche Abschluss eine bedeutende Veränderung im eigenen Leben bedeutet wenn sie gelernt wird. Erwarten Sie dass diese Lektion schwieriger ist und  Mühe beim  Navigieren bereitet.  
     
-#### * 666 zeigt an, dass sich die Lektion auf den fleischlichen oder physischen Bereich (äußeres) bezieht  
+#### * 666 zeigt an, dass sich die Lektion auf den fleischlichen oder physischen Bereich (Äußeres) bezieht.
     
-#### * 777 zeigt an, dass sich die Lektion mit dem spirituellen Bereich (innerem) befasst  
+#### * 777 zeigt an, dass sich die Lektion mit dem spirituellen Bereich (dem Innerem) befasst.
     
-#### * 888 zeigt an, dass die Lektion abgeschlossen ist und dass alles, was zwischen dem 111 und dem 888 passiert ist, alle Lektionselemente enthält, und beschränken Sie Ihre Aufmerksamkeit auf das, was zwischen dem 111 und dem 888 passiert ist.  
+#### * 888 zeigt an, dass die Lektion abgeschlossen ist und dass alles was zwischen dem 111 und dem 888 passiert ist, alle Lektionselemente enthält.  Beschränke Deine  Aufmerksamkeit auf das was zwischen dem 111 und dem 888 passiert ist.  
     
-#### * 999 bedeutet, dass die Lektion, ihr Zweck und ihre Bedeutung vollständig gelernt wurden      
+#### * 999 bedeutet dass die Lektion, ihr Zweck und ihre Bedeutung vollständig gelernt wurden      
+
 #### * 111 beginnt einen neuen Unterrichtszyklus.  
+
+
+Man kann diese Zahlen nicht übersehen. Die Benachrichtigung erfolgt durch die Steuerung der Aufmerksamkeit. Die Unterrichtsdauer kann je nach Komplexität zwischen Stunden und Monaten liegen. Die Lektionen werden in der Regel länger, je mehr Lektionen gelernt werden. Dies ist nur ein einfaches Beispiel - und man kann beginnen mehr Symbole und Zeichen zu entwickeln: Wenn jemand der ein Symbol mehrmals sieht, einfach fragt was es bedeutet und erwartet dass ihm diese Antwort durch seine Lebenserfahrung gezeigt wird. Zwischen dem Ende einer Lektion und dem Beginn der nächsten liegen oft Ruhezeiten.
+
+
+
+
+---
+:scroll: 
     
 
-Die Zahlen kann man nicht übersehen. Die Benachrichtigung erfolgt durch die Steuerung der Aufmerksamkeit. Die Unterrichtsdauer kann je nach Komplexität zwischen Stunden und Monaten liegen. Die Lektionen werden in der Regel länger, je mehr Lektionen gelernt werden. Dies ist nur ein einfaches Beispiel, und man kann beginnen, mehr Symbole und Zeichen zu entwickeln, wenn jemand, der ein Symbol mehrmals sieht, einfach fragt, was es bedeutet, und erwartet, dass ihm diese Antwort durch seine Lebenserfahrung gezeigt wird. Zwischen dem Ende einer Lektion und dem Beginn der nächsten liegen oft Ruhezeiten.
 
 
 ### Wiedererlangung des Verstandes
