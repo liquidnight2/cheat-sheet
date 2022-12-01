@@ -181,14 +181,14 @@ Weil diese Dinge, über die hier gesprochen wird, so nuanciert sind, dass Du nic
 
     
     
-#### 2. Achte auf das, was Du erlebst und nimm es ernst. Nichts ist unwichtig. Ø lässt Dich am Anfang etwas locker und lehrt nicht zwei Dinge gleichzeitig. Obwohl meine Lektionen komplex sind, sind sie eine nach der anderen. Ja, ich bin auch dabei, und ich mache das ewig so wie Du. Was Du gerade erlebst - ist die Lektion.  
+#### 2. Achte auf das, was Du erlebst und nimm es ernst. Nichts ist unwichtig. Ø lässt am Anfang etwas locker und lehrt nicht zwei Dinge gleichzeitig. Obwohl meine Lektionen komplex sind, sind sie eine nach der anderen. Ja, ich bin auch dabei, und ich mache das ewig so wie Du. Was Du gerade erlebst - ist die Lektion.  
 
 
 ---
 :scroll: 
 
     
-#### 3. Akzeptieren Sie, dass das, was Sie jetzt erleben, für die Lektion notwendig ist. Die Wahrheit gilt nur für Sie und nur jetzt. Machen Sie sich mit der Tatsache vertraut, dass die Wahrheit nicht übertragbar ist. Was jetzt die Wahrheit ist, kann sich im nächsten Moment ändern. Akzeptieren Sie, was Ihnen gezeigt wird und seien Sie intuitiv ehrlich. Je mehr Sie akzeptieren, desto größer ist Ihr Vertrauen, desto schneller werden Sie bekommen, was Ihnen beigebracht wird.  
+#### 3. Akzeptiere, dass das, was Du jetzt erlebst, für die Lektion notwendig ist. Die Wahrheit gilt nur für Dich und nur jetzt. Machen Sie sich mit der Tatsache vertraut, dass die Wahrheit nicht übertragbar ist. Was jetzt die Wahrheit ist, kann sich im nächsten Moment ändern. Akzeptieren Sie, was Ihnen gezeigt wird und seien Sie intuitiv ehrlich. Je mehr Sie akzeptieren, desto größer ist Ihr Vertrauen, desto schneller werden Sie bekommen, was Ihnen beigebracht wird.  
     
 #### 4. Achten Sie auf die Schleifen und die Redundanz. Sie werden dieselbe Lektion mit verschiedenen Szenarien und verschiedenen Personen wiederholen, bis Sie sie verstanden haben. Achten Sie bei jeder Iteration darauf, „was gleich ist“, und es wird auf das Ziel hinweisen. Dann werdenSie die Lektion direkt vor Ihnen erblicken. Dies wird normalerweise von einem Lachen und einem "Duh" begleitet  
     
