@@ -277,14 +277,17 @@ In des Egos weiterer Funktion,  dem Selbstunterdrückungsprozess, agiert es als 
 
 
 
+Diese Erinnerungen werden oft unter anderen Erinnerungen begraben. Das Ego weigert sich, sich auch nur an die Existenz von Erfahrungs zu erinnern und macht sie für den Beobachter unsichtbar. Daher ist der Beobachter nicht in der Lage, die negativen Lebenserfahrungen für die positiven Zwecke zu verarbeiten, für die sie vom Selbst beabsichtigt und manifestiert wurden. Das scheinbare Paradoxon des Egos, das sowohl als Verursacher von Schmerzen als auch als Beschützer dient, wird gelöst indem man erkennt, dass das Ego keine eigene reale / substantielle Existenz hat.
+
+
+
+Die Vergangenheit ist ein Konstrukt erlernter Muster. Es gibt nichts Wirkliches zu schützen, da es keinen wirklichen Feind und keinen wirklichen Tod gibt. Daher stellt das Ego sein eigenes Überleben auf die höchste Priorität, und zwar durch eine Vielzahl von projizierten Feinden  (denn die Entdeckung der gutartigen Natur der Existenz würde es seiner Macht und möglicherweise seiner Funktion berauben) . Das Ego ist in der Lage, sehr intensive, realistische Höllenerfahrungen zu Lernzwecken für den Beobachter  zu projizieren.
+
+
 ---
 :scroll: 
     
 
-
-Diese Erinnerungen werden oft unter anderen Erinnerungen begraben. Das Ego weigert sich, sich auch nur an die Existenz von Erfahrungs zu erinnern und macht sie für den Beobachter unsichtbar. Daher ist der Beobachter nicht in der Lage, die negativen Lebenserfahrungen für die positiven Zwecke zu verarbeiten, für die sie vom Selbst beabsichtigt und manifestiert wurden. Das scheinbare Paradoxon des Egos, das sowohl als Verursacher von Schmerzen als auch als Beschützer dient, wird gelöst, indem man erkennt, dass das Ego keine eigene reale, substantielle Existenz hat.
-
-Die Vergangenheit ist ein Konstrukt erlernter Muster. Es gibt nichts Wirkliches zu schützen, da es keinen wirklichen Feind und keinen wirklichen Tod gibt. Daher stellt das Ego sein eigenes Überleben auf die höchste Priorität (denn die Entdeckung der gutartigen Natur der Existenz würde es seiner Macht und möglicherweise seiner Funktion berauben), und zwar durch eine Vielzahl von projizierten Feinden. Das Ego ist in der Lage, sehr intensive, realistische Höllenerfahrungen für den Beobachter zu Lernzwecken zu projizieren.
 
 Das zuvor erwähnte Selbst ist der spirituelle oder energetische Aspekt oder das Konstrukt unseres Bewusstseins. Selbst ist Einheit oder Einssein. Wo das Ego eine Identität und eine Quantität im Universum hat, ist das Selbst der Teil von uns, der sich außerhalb des Physischen befindet. Es lebt durch die rechte Gehirnhälfte. Es regelt den inspirierenden Kanal, durch den unser Bewusstsein Zugang zum Geist von Ø erhält. Durch das Selbst ist alle Vernunft bekannt, wenn sie vom Ego benötigt wird. Nicht, wenn es vom Ego gewollt ist.
 
