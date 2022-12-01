@@ -169,50 +169,55 @@ Weil diese Dinge, über die hier gesprochen wird, so nuanciert sind, dass Du nic
 
 
 
-
-
-
-
 ### Was funktioniert, ist Folgendes:
 
 #### 1. Vertraue  darauf, dass Du jetzt genau das bekommen, was Du am meisten brauchst (wir wissen bereits, was Du willst). Das Problem ist, dass das Ego das auch tut und Leiden erzeugt, indem es zurückhält was Du willst. Das, was Du am meisten willst, wird zurückgehalten und das, was Dir unangenehm ist, wird Dich heimsuchen. Die emotionale „Energie“ oder Konzentration die Du aufbringst, erzeugt ein Ungleichgewicht und die Reaktion ist immer gegensätzlich. Für jede Aktion gibt es eine gleiche und entgegengesetzte Reaktion. Das gilt auch für Emotionen. Alle Emotionen sind Ego. Ja, sogar Liebe zu „fühlen“.  
     
     
-
-    
     
 #### 2. Achte auf das, was Du erlebst und nimm es ernst. Nichts ist unwichtig. Ø lässt am Anfang etwas locker und lehrt nicht zwei Dinge gleichzeitig. Obwohl meine Lektionen komplex sind, sind sie eine nach der anderen. Ja, ich bin auch dabei, und ich mache das ewig so wie Du. Was Du gerade erlebst - ist die Lektion.  
 
 
----
-:scroll: 
+    
+#### 3. Akzeptiere dass das was Du jetzt erlebst, für die Lektion notwendig ist. Die Wahrheit gilt nur für Dich und nur jetzt. Mache Dich  sich mit der Tatsache vertraut, dass die Wahrheit "nicht übertragbar" 🔴 ???  ist. Was jetzt die Wahrheit 🔴 (Wahrnehmung, perception)  ist, kann sich im nächsten Moment ändern. Akzeptiere, was Dir gezeigt wird und sei intuitiv ehrlich. Je mehr Du akzeptierst desto größer ist Dein Vertrauen, desto schneller wirst Du  bekommen, was Dir beigebracht wird.  
+
+        
+#### 4. Achte auf die Schleifen und die Redundanz. Du wirst dieselbe Lektion mit verschiedenen Szenarien und verschiedenen Personen wiederholen, bis Du sie verstanden hast. Achte  bei jeder Iteration darauf "was gleich ist“, und es wird auf das Ziel hinweisen. Dann wirst Du die Lektion direkt vor Dir erblicken. Dies wird normalerweise von einem Lachen und einem "Duh" begleitet.
+
 
     
-#### 3. Akzeptiere, dass das, was Du jetzt erlebst, für die Lektion notwendig ist. Die Wahrheit gilt nur für Dich und nur jetzt. Machen Sie sich mit der Tatsache vertraut, dass die Wahrheit nicht übertragbar ist. Was jetzt die Wahrheit ist, kann sich im nächsten Moment ändern. Akzeptieren Sie, was Ihnen gezeigt wird und seien Sie intuitiv ehrlich. Je mehr Sie akzeptieren, desto größer ist Ihr Vertrauen, desto schneller werden Sie bekommen, was Ihnen beigebracht wird.  
-    
-#### 4. Achten Sie auf die Schleifen und die Redundanz. Sie werden dieselbe Lektion mit verschiedenen Szenarien und verschiedenen Personen wiederholen, bis Sie sie verstanden haben. Achten Sie bei jeder Iteration darauf, „was gleich ist“, und es wird auf das Ziel hinweisen. Dann werdenSie die Lektion direkt vor Ihnen erblicken. Dies wird normalerweise von einem Lachen und einem "Duh" begleitet  
-    
-#### 5. Am Anfang wird Ihnen beigebracht, „wie Sie belehrt werden“, und nicht, was Sie „anstreben“. Das kommt, wenn Sie den Lernprozess beenden und Ihrer Erfahrung vertrauen und sich damit wohler fühlen, wie es funktioniert. Dann entspannen Sie sich und die vorausgesetzten Lektionen vergehen immer schneller.  
+#### 5. Am Anfang wird Dir beigebracht "wie Du belehrt wirst", und nicht was Du "anstrebst". Das kommt wenn Du den Lernprozess beendest und Deiner Erfahrung vertraust und sich damit wohler fühlst wie es funktioniert. Dann entspanne Dich und die notwendigen Lektionen vergehen immer schneller.  
     
 
-Dann, wenn der richtige Zeitpunkt für Sie gekommen ist, wird Ø bei Ihnen aufgesucht, weil Sie einfach die Wahrnehmungsbarrieren beseitigt haben und es so aussehen wird, als ob Ø die ganze Zeit direkt vor Ihnen gewesen wäre.
+Wenn der richtige Zeitpunkt für Dich gekommen ist, wird Ø Dich 🔴 heimsuchen, weil Du einfach die Wahrnehmungsbarrieren beseitigt hast und es so aussehen wird, als ob Ø die ganze Zeit direkt vor Dir gewesen wäre.
 
-Wir sind hier, um zu lernen, und es ist für alte Menschen keine Überraschung, dass wir hier durchmachen, was wir durchmachen. Bewusstsein (Sie, ich, alle) testet Dinge durch Erfahrung. Es ist eine Sache, es zu wissen, und eine ganz andere, es selbst zu erleben.
 
-Wir existieren in einem Zustand reduzierter Energie, in dem das Wirt-Parasit/Herr-Sklave/Gläubiger-Schuldner-Paradigma erforscht wird. Dass Sklaverei keine „gute Idee“ ist, lernt man am besten, indem man erlebt, wie es ist, ein Sklave zu sein. Wir erforschen auch Verwirrung und Wahnsinn und lernen, wie wir aus einem Zustand von Wahnsinn oder Verwirrung zurückkehren können. Das Folgende ist eine Nuance der Verwirrung und ihr grundlegendes Merkmal:
+
+
+Wir sind hier um zu lernen, und es ist für die Vorfahren keine Überraschung dass wir hier das durchmachen, was wir durchmachen sollen. Bewusstsein (Du, ich, alle) testet Dinge durch Erfahrung. Es ist eine Sache das zu wissen, und eine ganz andere das selbst zu erleben.
+
+
+
+Wir existieren in einem Zustand reduzierter Energie, in dem das Wirt-Parasit/Herr-Sklave/Gläubiger-Schuldner-Paradigma erforscht wird. Dass Sklaverei keine "gute Idee" ist lernt man am besten, indem man erlebt wie es ist, ein Sklave zu sein. Wir erforschen auch Verwirrung und Wahnsinn und lernen, wie wir aus einem Zustand von Wahnsinn oder Verwirrung zurückkehren können. Das Folgende ist eine Nuance der Verwirrung und ihr grundlegendes Merkmal:
 
 ### Die Verwirrten sind die Letzten, die wissen, dass sie verwirrt sind.
 
-Wenn sie wüssten, dass sie verwirrt waren, würden sie sofort daran arbeiten, Abhilfe zu schaffen. Das ist eine andere Nuance: Verwirrung kann nicht durch Arbeit oder Anstrengung behoben werden. Die Hauptmethode besteht darin, anzuhalten und eine automatische Behebung zuzulassen. Hör auf zu denken und erlaube deiner Meinung, sich zu ändern. Das ist nicht so einfach, wie Sie denken.
 
+Wenn sie wüssten dass sie verwirrt waren, würden sie sofort daran arbeiten, Abhilfe zu schaffen. Das ist eine andere Eigenschaft: Verwirrung kann nicht durch Arbeit oder Anstrengung behoben werden. Die Hauptmethode besteht darin anzuhalten und eine automatische Behebung zuzulassen. Hör auf zu denken und erlaube deiner Meinung, sich zu ändern. Das ist nicht so einfach, wie Du denkst.
 
 
 
 ## Verantwortung
 
-Es sollte nicht überraschen, dass unser Wissen über die Mechanismen von Verantwortung und Rechenschaftspflicht unvollständig ist. Diejenigen mit dem Wissen nutzen die ohne dieses Wissen aus. Man muss wissen, dass man keine Verantwortung übernehmen kann, wenn man nicht fleißig die Aufmerksamkeit auf den unmittelbaren Moment oder das „gerade jetzt“ richtet. Sowohl die unbekannte hypothetische Zukunft als auch die gefilterte und konditionierte Erinnerung, die wir Vergangenheit nennen, sind ausschließlich das Reich des Egos. Das Selbst als Wahrheit existiert nur jetzt und kann weder in der Zukunft noch in der Vergangenheit verwirklicht werden, und daher ist dort auf alle wahre Macht zugegriffen. Wenn man sich nur auf den unmittelbaren Moment ohne Ablenkung konzentriert, bietet das allein schon großen Trost.
+Es sollte nicht überraschen, dass unser Wissen über die Mechanismen von Verantwortung und Rechenschaftspflicht unvollständig ist. Diejenigen mit dem Wissen nutzen die Anderen ohne dieses Wissen aus. Man muss wissen, dass man keine Verantwortung übernehmen kann, wenn man nicht sorgfältig die Aufmerksamkeit auf den unmittelbaren Moment oder das „gerade jetzt“ richtet. Sowohl die unbekannte hypothetische Zukunft als auch die gefilterte und konditionierte Erinnerung, die wir Vergangenheit nennen, sind ausschließlich das Reich des Egos. Das Selbst als Wahrheit existiert nur jetzt und kann weder in der Zukunft noch in der Vergangenheit verwirklicht werden, dadurch ist die echte Macht nur im Jetzt verfügbar. Wenn man sich nur auf den unmittelbaren Moment ohne Ablenkung konzentriert, bietet das allein schon großen Trost.
 
-Wir sind oft vom Jetzt abgelenkt und reagieren auf Dinge, die passieren könnten, oder auf eine Weise, die in der Vergangenheit funktioniert hat, aber nicht so, wie sie jetzt reagiert werden müssen. Wir können gerade jetzt vom Bus angefahren werden, indem wir einfach von unserer Angst abgelenkt werden, in Zukunft von einem Bus angefahren zu werden, oder nur weil wir in der Vergangenheit dem Bus nicht im Weg standen, heißt das nicht, dass wir ihm nicht im Weg stehen der Weg des Busses gerade.
+Wir sind oft vom Jetzt abgelenkt und reagieren auf Dinge, die passieren könnten, oder auf eine Weise die in der Vergangenheit funktioniert hat, aber  wir reagieren nicht so wie man jetzt reagieren sollte. Wir können gerade jetzt vom Bus überfahren werden indem wir einfach von unserer Angst abgelenkt werden, in Zukunft von einem Bus angefahren zu werden. Nur weil wir in der Vergangenheit dem Bus nicht im Weg standen, heißt das nicht dass wir ihm nicht gerade jetzt im Weg stehen stehen werden.
+
+
+---
+:scroll: 
+
+
 
 Die Entscheidung, auf der Grundlage einer akuten Beobachtung zu antworten oder nicht zu reagieren, und die Konzentration unserer Aufmerksamkeit auf das Jetzt stellen den besten Ansatz für eine korrekte Reaktion sicher. Das Wissen um das natürliche/göttliche Gesetz hilft bei seiner Anwendung, um sicherzustellen, dass man unerwünschte Folgen vermeidet, da das Gesetz durchgängig fehlerlos ist mit beobachtbarer Ursache-Wirkungs-Beziehung in der Realität, vorausgesetzt, man hat eine ausreichende Beherrschung der gesetzmäßigen Prinzipien. Beispiel: Wenn ich einen Stein in der Hand halte und ihn loslasse, sind wir ziemlich sicher, dass der Stein fallen wird. Das bedeutet nicht, die Zukunft vorherzusagen, sondern lediglich ausreichende Kenntnisse darüber zu haben, wie das Gesetz der Schwerkraft funktioniert, wenn wir es auf diese Situation anwenden.
 
