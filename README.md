@@ -261,21 +261,26 @@ Man kann diese Zahlen nicht übersehen. Die Benachrichtigung erfolgt durch die S
 
 
 
+### Wiedererlangung des Verstandes
+
+Naturgesetz (Natural Spiritual Law, Gesetze auf der Ebene der Seelen) und Verantwortung sind die einzigen Mittel, um sowohl den Wahnsinn als auch die Verwirrung zu lindern, die diesen Wahnsinn verursacht. Es liegt daran, dass Ø das Naturgesetz durchsetzt und Ø nichts gegen Ihren Willen erzwingen wird. Und ich weiß schon, was du denkst: Ja richtig! Um das Naturgesetz zu verstehen, müssen wir mit den Komponenten dessen beginnen, was Du wirklich bist. Wir sind Bewusstsein und das Bewusstsein selbst besteht aus zwei Komponenten.
+
+
+
+
+
+Wir sind eine individuell unterteilte beobachtende Facette von Ø. Dein Leben besteht darin Bewusstsein durch ein begrenztes Werkzeug zu erfahren. Es ist nicht möglich, dass Ø vollständig durch einen Fleischanzug ausgedrückt wird. 🔴 Es würde mehr Leben kosten, als das Universum aufnehmen kann. Jeder von uns macht seine Arbeit, um spezifische Erfahrungen für Ø zu gewinnen.
+
+Ego ist der physische Ausdruck dieser begrenzten Facette von Ø. Es ist die Simulation des wahrgenommenen Universums, in der Du dich befindest. Es ist Dualität oder die Illusion von "Anderen". Es sind all Deine Gedanken, all Deine Gefühle, alle Handlungen und alle Ereignisse. Sogar die Wahrnehmung von Zeit und Volumen ist nur Ego. Die Schnittstelle für diesen Aspekt ist die linke Gehirnhälfte.
+
+In des Egos weiterer Funktion,  dem Selbstunterdrückungsprozess, agiert es als Abwehrmechanismus. Das Ego unterdrückt oder verbirgt unangenehme Erfahrungen, um 🔴 "den Beobachter“ vor der Härte zu schützen.
+
+
+
 ---
 :scroll: 
     
 
-
-
-### Wiedererlangung des Verstandes
-
-Naturgesetz (Natural Spiritual Law, Gesetze auf der Ebene der Seelen) und Verantwortung sind die einzigen Mittel, um sowohl den Wahnsinn als auch die Verwirrung zu lindern, die diesen Wahnsinn verursacht. Es liegt daran, dass Ø das Naturgesetz durchsetzt und Ø nichts gegen Ihren Willen erzwingen wird. Und ich weiß schon, was du denkst: Ja richtig! Um das Naturgesetz zu verstehen, müssen wir mit den Komponenten dessen beginnen, was Sie wirklich sind. Wir sind Bewusstsein und das Bewusstsein selbst ist in zwei Komponenten gespalten.
-
-Wir sind eine individuell unterteilte beobachtende Facette von Ø. Ihr Leben besteht darin, Bewusstsein durch ein begrenztes Werkzeug zu erfahren. Es ist nicht möglich, dass Ø vollständig durch einen Fleischanzug ausgedrückt wird. 🔴 Es würde mehr Leben kosten, als das Universum aufnehmen kann. Jeder von uns macht seine Arbeit, um spezifische Erfahrungen für Ø festzuhalten.
-
-Ego ist der physische Ausdruck dieser begrenzten Facette von Ø. Es ist die Simulation des wahrgenommenen Universums, in der du dich befindest. Es ist Dualität oder die Illusion von „anderen“. Es sind all deine Gedanken, all deine Gefühle, alle Handlungen und alle Ereignisse. Sogar die Wahrnehmung von Zeit und Volumen ist nur Ego. Die Schnittstelle für diesen Aspekt ist die linke Gehirnhälfte.
-
-Im Verdrängungsprozess ist Egos andere Funktion, Ego handelt als Abwehrmechanismus. Das Ego unterdrückt oder verbirgt unangenehme Erfahrungen, um 🔴 "den Beobachter“ vor der Härte zu schützen.
 
 Diese Erinnerungen werden oft unter anderen Erinnerungen begraben. Das Ego weigert sich, sich auch nur an die Existenz von Erfahrungs zu erinnern und macht sie für den Beobachter unsichtbar. Daher ist der Beobachter nicht in der Lage, die negativen Lebenserfahrungen für die positiven Zwecke zu verarbeiten, für die sie vom Selbst beabsichtigt und manifestiert wurden. Das scheinbare Paradoxon des Egos, das sowohl als Verursacher von Schmerzen als auch als Beschützer dient, wird gelöst, indem man erkennt, dass das Ego keine eigene reale, substantielle Existenz hat.
 
