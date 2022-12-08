@@ -266,9 +266,6 @@ Man kann diese Zahlen nicht übersehen. Die Benachrichtigung erfolgt durch die S
 Naturgesetz (Natural Spiritual Law, Gesetze auf der Ebene der Seelen) und Verantwortung sind die einzigen Mittel, um sowohl den Wahnsinn als auch die Verwirrung zu lindern, die diesen Wahnsinn verursacht. Es liegt daran, dass Ø das Naturgesetz durchsetzt und Ø nichts gegen Ihren Willen erzwingen wird. Und ich weiß schon, was du denkst: Ja richtig! Um das Naturgesetz zu verstehen, müssen wir mit den Komponenten dessen beginnen, was Du wirklich bist. Wir sind Bewusstsein und das Bewusstsein selbst besteht aus zwei Komponenten.
 
 
-
-
-
 Wir sind eine individuell unterteilte beobachtende Facette von Ø. Dein Leben besteht darin Bewusstsein durch ein begrenztes Werkzeug zu erfahren. Es ist nicht möglich, dass Ø vollständig durch einen Fleischanzug ausgedrückt wird. 🔴 Es würde mehr Leben kosten, als das Universum aufnehmen kann. Jeder von uns macht seine Arbeit, um spezifische Erfahrungen für Ø zu gewinnen.
 
 Ego ist der physische Ausdruck dieser begrenzten Facette von Ø. Es ist die Simulation des wahrgenommenen Universums, in der Du dich befindest. Es ist Dualität oder die Illusion von "Anderen". Es sind all Deine Gedanken, all Deine Gefühle, alle Handlungen und alle Ereignisse. Sogar die Wahrnehmung von Zeit und Volumen ist nur Ego. Die Schnittstelle für diesen Aspekt ist die linke Gehirnhälfte.
@@ -276,46 +273,55 @@ Ego ist der physische Ausdruck dieser begrenzten Facette von Ø. Es ist die Simu
 In des Egos weiterer Funktion,  dem Selbstunterdrückungsprozess, agiert es als Abwehrmechanismus. Das Ego unterdrückt oder verbirgt unangenehme Erfahrungen, um 🔴 "den Beobachter“ vor der Härte zu schützen.
 
 
-
 Diese Erinnerungen werden oft unter anderen Erinnerungen begraben. Das Ego weigert sich, sich auch nur an die Existenz von Erfahrungs zu erinnern und macht sie für den Beobachter unsichtbar. Daher ist der Beobachter nicht in der Lage, die negativen Lebenserfahrungen für die positiven Zwecke zu verarbeiten, für die sie vom Selbst beabsichtigt und manifestiert wurden. Das scheinbare Paradoxon des Egos, das sowohl als Verursacher von Schmerzen als auch als Beschützer dient, wird gelöst indem man erkennt, dass das Ego keine eigene reale / substantielle Existenz hat.
-
 
 
 Die Vergangenheit ist ein Konstrukt erlernter Muster. Es gibt nichts Wirkliches zu schützen, da es keinen wirklichen Feind und keinen wirklichen Tod gibt. Daher stellt das Ego sein eigenes Überleben auf die höchste Priorität, und zwar durch eine Vielzahl von projizierten Feinden  (denn die Entdeckung der gutartigen Natur der Existenz würde es seiner Macht und möglicherweise seiner Funktion berauben) . Das Ego ist in der Lage, sehr intensive, realistische Höllenerfahrungen zu Lernzwecken für den Beobachter  zu projizieren.
 
 
----
-:scroll: 
-    
+Das zuvor erwähnte Selbst ist der spirituelle oder energetische Aspekt oder das Konstrukt unseres Bewusstseins. Eist ist die Einheit oder das Eins-Sein. Wo das Ego eine Identität und eine Quantität im Universum hat, ist das Selbst der Teil von uns, der sich außerhalb des Physischen befindet. Es lebt durch die rechte Gehirnhälfte. Es regelt den inspirierenden Kanal durch den unser Bewusstsein Zugang zum Geist von Ø erhält. Durch das Selbst ist alle Vernunft bekannt wenn sie vom Ego benötigt wird. Nicht jedoch wenn es vom Ego gewollt wird.
+
+Das Ego kommuniziert in Bezeichnungen oder Definitionen, die das Phsyische erfordern. Das Selbst kommuniziert in Symbolen die eine Bedeutung und einen Zweck haben, die über das Physische hinausgehen.
+
+Es ist hilfreich es wie ein Videospiel zu betrachten, bei dem eine Seite das Spiel aufbaut, das die andere spielt. Dem Ego fehlen die Sinne oder die Logik, um das Selbst kognitiv zu verstehen oder zu erkennen.
 
 
-Das zuvor erwähnte Selbst ist der spirituelle oder energetische Aspekt oder das Konstrukt unseres Bewusstseins. Selbst ist Einheit oder Einssein. Wo das Ego eine Identität und eine Quantität im Universum hat, ist das Selbst der Teil von uns, der sich außerhalb des Physischen befindet. Es lebt durch die rechte Gehirnhälfte. Es regelt den inspirierenden Kanal, durch den unser Bewusstsein Zugang zum Geist von Ø erhält. Durch das Selbst ist alle Vernunft bekannt, wenn sie vom Ego benötigt wird. Nicht, wenn es vom Ego gewollt ist.
 
-Das Ego kommuniziert in Bezeichnungen oder Definitionen, die die Existenz von Körperlichkeit erfordern. Das Selbst kommuniziert in Symbolen, die eine Bedeutung und einen Zweck haben, die über das Physische hinausgehen.
 
-Es ist hilfreich, es wie ein Videospiel zu betrachten, bei dem eine Seite das Spiel aufbaut, das die andere spielt. Dem Ego fehlen die Sinne oder die Logik, um das Selbst kognitiv zu verstehen oder zu erkennen.
-
-Unsere Herausforderungen haben mit dem Alter zu tun, in dem wir uns befinden. Ø hat diese Dualität erschaffen und uns dann vom Selbst getrennt, um zu erfahren, wie es sich anfühlt, von Ø getrennt zu sein. Es war auch nützlich zu erfahren, wie es ist, einen Anfang und ein Ende zu haben. Das gibt es in der Einheit nicht. Im Selbst sind wir eins in der Ewigkeit. Dies erfordert ein eher begrenztes Zeitgefühl.
+Unsere Herausforderungen haben mit dem Alter zu tun, in dem wir uns befinden. Ø hat diese Dualität erschaffen und uns dann vom Selbst getrennt, um zu erfahren wie es sich anfühlt, von Ø getrennt zu sein. Es war auch nützlich zu erfahren wie es ist, einen Anfang und ein Ende zu haben. Das gibt es in der Einheit nicht. Im Selbst sind wir eins in der Ewigkeit. Dies erfordert ein eher begrenztes Zeitgefühl.
 
 Dies ist die Eisenzeit und die Menschen des Altertums wussten, dass wir in diese Periode des extrem linkshirnigen Egos eintreten würden. Dies ändert sich jedoch. Aus diesem Grund sind Sie jetzt hier. Wir haben uns schlafen gelegt oder uns selbst einen Schabernack gespielt und jetzt ist es an der Zeit, aufzuwachen und die versteckte Kamera zu enthüllen. Alles ist zyklisch.
 
-Wenn du in den Spiegel schaust, ist alles, was du im Physischen siehst und erfährst, Ego. Ø ist der von der Quantenmechanik angezeigte Beobachter, nicht das Ego! Das Ego hat die Absicht, aber das Ego kontrolliert nicht das Spiel, und es ist nicht das, was die Lebenswellenform in ein Teilchen kollabiert, das wir als "jetzt" kennen. Das Selbst ist das Element, das die Position und den Zeitpunkt des resultierenden Teilchens bestimmt. Der Quantenphysiker schaut in den Spiegel und denkt, das Bild sei der Beobachter. Daher täuscht sich das Ego selbst, indem es denkt, dass es das ist, was kontrolliert, obwohl das Ego in Wirklichkeit nur der Akteur ist und der Regisseur oder das Selbst dem Akteur (Ego) sagt, was zu tun ist. Dies ist der Fehler, der den Hauptfehler in den Lehren des Gesetzes der Anziehung verursacht.
+
+Wenn Du in den Spiegel schaust, ist alles was du im Physischen siehst und erfährst, Ego.  Ø ist der von der Quantenmechanik angezeigte Beobachter, nicht das Ego! Das Ego hat die Absicht, aber das Ego kontrolliert nicht das Spiel, und es ist nicht das was die Lebenswellenform in ein Teilchen kollabiert, das wir als "jetzt" kennen. Das Selbst ist das Element, das die Position und den Zeitpunkt des resultierenden Teilchens bestimmt. Der Quantenphysiker schaut in den Spiegel und denkt, das Bild sei der Beobachter. Daher täuscht sich das Ego selbst indem es denkt, dass es das ist was kontrolliert, obwohl das Ego in Wirklichkeit nur der Akteur ist und der Regisseur oder das Selbst dem Akteur (Ego) sagt, was zu tun ist. Dies ist der Fehler, der den Hauptfehler in den Lehren des Gesetzes der Anziehung verursacht.
+
+
 
 Ein weiterer primärer Quanteneffekt ist, dass gemessen wurde, dass oft Effekte ihrer Ursache vorausgehen. Dies ist wichtig, da dies der primäre Mechanismus ist, der es dem Ego ermöglicht zu denken, dass es die Kontrolle hat. Der "Wille, etwas zu tun", wird in Egos Zeitillusion so projiziert, dass "der Wille" der "Handlung" vorauszugehen scheint. Dies macht Ego zu einem hervorragenden Lernwerkzeug, da alle Dinge spontan erscheinen, obwohl sie in Wirklichkeit unter der strengen Kontrolle des Selbst in völliger Sicherheit stehen.
 
-Das Naturgesetz ist das Mittel, durch das alle Dinge geschehen, und ist so strukturiert, dass es diese Lektion vermittelt.
+Das Naturgesetz ist das Mittel durch das alle Dinge geschehen, und ist so strukturiert dass es diese Lektion vermittelt.
 
-Der Grund, warum ich das anspreche, ist, dass das Ego endlos Kompromisse eingehen wird, um die Illusion aufrechtzuerhalten, dass es die Kontrolle hat. Zu dieser Zeit werfen die Menschen die bestehende List in großer Zahl ab und das Ego gerät in Panik und hält Schritt, indem es die Illusionen aufrechterhält, da dies eine seiner Hauptfunktionen ist. Es ist der Betrüger, der Illusionist und erlaubt uns, in scheinbarer Getrenntheit zu existieren.
 
-Unsere Lektion erforderte eine subtile Änderung gegenüber dem letzten Zeitalter, damit wir dieses neue Paradigma erforschen und lernen konnten. Uns fehlte „nützliches“ Wissen darüber, was Wahnsinn ist. Dies beseitigte effektiv die primäre Barriere zum Leiden, denn wenn man ein nützliches Wissen über Wahnsinn hat, kann man Leiden vermeiden.
+Der Grund, warum ich das anspreche, ist, dass das Ego endlos Kompromisse eingehen wird, um die Illusion aufrecht zu erhalten dass es die Kontrolle hat. Zu dieser Zeit werfen viele  Menschen die bestehende Finte ab und das Ego gerät in Panik und hält Schritt, indem es die Illusionen aufrechterhält, da dies eine seiner Hauptfunktionen ist. Es ist der Betrüger, der Illusionist, und erlaubt uns in scheinbarer Getrenntheit zu existieren.
+
+
+Unsere Lektion erforderte eine subtile Änderung gegenüber dem letzten Zeitalter, damit wir dieses neue Paradigma erforschen und lernen konnten. Uns fehlte „nützliches“ Wissen darüber was Wahnsinn ist. Dies beseitigte effektiv die primäre Barriere zum Leiden, denn wenn man ein nützliches Wissen über Wahnsinn hat, kann man Leiden vermeiden.
+
+
 
 Wir bekräftigen Prinzipien des Naturrechts, indem wir etablierte Präzedenzfälle oder ein Urteil im Gerichtsverfahren anwenden. Wenn eine der beiden Methoden angewendet wird, leidet jemand. Um die Auswirkungen eines „Fehlers“ zu kennen, muss jemand zuerst gehen und „einen für das Team nehmen“. Unser Wahnsinn ist so tief, dass wir es oft immer wieder tun müssen und jedes Mal ein anderes Ergebnis erwarten. Das Naturgesetz ist konsistent.
 
-Eine nützlichere Definition von Wahnsinn ist die Unfähigkeit, die Wahrheit wahrzunehmen. In Wahrheit meine ich Ø. Wenn wir diesen spezifische Scheuklappe haben, dann wissen wir nicht, dass das, was wir tun werden, entweder Nutzen oder Leid hervorrufen wird. Wenn wir darauf achten und das Leiden als notwendig akzeptieren und unsere Verantwortung für jede Handlung, die Leiden hervorruft, dann werden wir in der Lage sein, die Lektion, die das Leiden lehrt, zu lernen und es zu vermeiden.
+Eine nützlichere Definition von Wahnsinn ist die Unfähigkeit, die Wahrheit wahrzunehmen. In 🔴 Wahrheit meine ich Ø. Wenn wir diesen spezifische Scheuklappe haben dann wissen wir nicht, dass das was wir tun werden, entweder Nutzen oder Leid hervorrufen wird. Wenn wir darauf achten und das Leiden als notwendig,  und unsere Verantwortung für jede Handlung die Leiden hervorruft, akzeptieren,  dann werden wir in der Lage sein, die Lektion die das Leiden lehrt zu lernen und es zu vermeiden.
 
-Wenn wir nicht auf das achten, was passiert, oder nicht akzeptieren, was wir sehen (die Wahrheit), oder wir keine Verantwortung für unsere Handlungen übernehmen, dann bekommen wir die Lektion erneut und das Leiden wird größer.
+Wenn wir nicht auf das achten, was passiert, oder nicht akzeptieren was wir sehen (die Wahrheit), oder wir keine Verantwortung für unsere Handlungen übernehmen, dann bekommen wir die Lektion erneut und das Leiden wird größer.
 
 Erhöhtes Bewusstsein ist erhöhte Aufmerksamkeit, erhöhte Akzeptanz und erhöhte Verantwortung, und dies ermöglicht das Lernen von Lektionen ohne die negative Verstärkung durch erhebliches Leiden.
+
+
+
+---
+:scroll: 
+    
 
 
 ### Die Hauptelemente des Wahnsinns sind:
