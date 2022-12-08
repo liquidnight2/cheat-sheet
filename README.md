@@ -319,20 +319,25 @@ Erhöhtes Bewusstsein ist erhöhte Aufmerksamkeit, erhöhte Akzeptanz und erhöh
 
 
 
----
-:scroll: 
-    
-
 
 ### Die Hauptelemente des Wahnsinns sind:
 
-1. Schwelgen Sie in der Fiktion und geben Sie dem, was nur in unserem Geist existiert, Kraft  
+1. Das Schwelgen Sie in der Fiktion; Dem was nur im Geiste existiert, Macht geben.
     
 2. Ein Mangel an konstruktiver Verantwortung, da wir nicht reagieren (apathisch)  oder unsere Antwort nicht angemessen ist (Verantwortungslosigkeit)  
     
 3. Trennung von der Einheit  
     
 4. Unkenntnis des Naturgesetzes  
+
+
+
+
+---
+:scroll: 
+    
+
+
     
 
 Man kann Wahnsinn nicht meistern, ohne zuerst Wahnsinn erlebt zu haben. Es ist eine Illusion, die höllisch weh tut. Sie müssen sich selbst verzeihen, dass Sie verrückt sind, denn dies war Ihr Ziel und es ist notwendig. Machen Sie sich etwas locker. Wenn Sie sich  selbst nicht vergeben können, dann kann Ihnen auch keiner der wahrgenommenen anderen in Ihrer Erfahrung vergeben. Es liegt an Ihnen. Keine Notwendigkeit, Punkte zu halten. Wenn Sie denken, Ihr Leben sei ein Rennen oder eine Modenschau, dann lenken Sie sich nur von Ihrer eigenen Verwirrung ab.
