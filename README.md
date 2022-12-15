@@ -36,7 +36,7 @@ Wenn ich "Torg" schreibe oder sage, ein Wort, von dem Du weder die Definition no
 
 Abstrakte Begriffe wie Emotionen können nicht anhand eines physischen Beispiels vermittelt werden. Wörter wie „Liebe“, „Feier“ und „Sorge“ bedeuten für verschiedene Menschen unterschiedliche Dinge, je nachdem, wie sie diese Konzepte in ihrer persönlichen Erfahrung erlebt haben. Wenn ich die Worte „Die Feiertage“ verwende und erwarte, dass jeder weiß, dass ich mich auf „Hanukka und Neujahr“ beziehe, dann ist „Die Feiertage“ nicht nützlich, um die beabsichtigte Bedeutung zu vermitteln. Da wir alle unterschiedliche Erfahrungen mit allen Wörtern machen, führen die Wörter selbst oft zu Missverständnissen, weil die Einzigartigkeit unserer Erfahrung dazu führt, dass wir für jeden von uns etwas unterschiedliche Bedeutungen haben. Ich kann nicht davon ausgehen, dass „May Day“ für den Leser oder Zuhörer an sich etwas Positives bedeutet.
 
-Hier ist die Herausforderung: Die Leute haben nicht nur wenig oder gar kein Wissen über das, was vermittelt wird, sondern es ist nicht greifbar, noch gibt es einfache Worte, die es den Leuten ermöglichen, sich auf ihre bereits bestehenden Erfahrungen zu beziehen. Das bedeutet, dass man sich hier der Beschränkung des Sprachgebrauchs bewusst sein und sich bemühen muss, die Bedeutung hinter den Wörtern zu erfassen, da sie höchstens auf die wahre Bedeutung hinweisen können. Helfen Sie also bitte dabei und lassen Sie sich nicht von dem Gesagten ablenken und konzentrieren Sie sich darauf, was die Worte in Ihnen hervorrufen. Wenn die Worte zu negativen Gefühlen führen, wurden die Worte nicht aufgenommen oder waren zu begrenzt, um leicht zu vermitteln was gemeint war. Bitte verwende  dies als Leitfaden, denn unter negativen Gefühlen erfasst man nicht die richtige Bedeutung. Es wird mehr Aufmerksamkeit und Selbstreflexion erfordern um zu bemerken, wann dies eintritt. Es wird vorgeschlagen 🔴 , dass man einfach das negative Gefühl vorübergehen lässt und fortfährt oder versucht, die Worte durchzugehen bis das beabsichtigte positive Ergebnis wahrgenommen wird.
+Hier ist die Herausforderung: Die Leute haben nicht nur wenig oder gar kein Wissen über das, was vermittelt wird, sondern es ist nicht greifbar, noch gibt es einfache Worte, die es den Leuten ermöglichen, sich auf ihre bereits bestehenden Erfahrungen zu beziehen. Das bedeutet, dass man sich hier der Beschränkung des Sprachgebrauchs bewusst sein und sich bemühen muss, die Bedeutung hinter den Wörtern zu erfassen, da sie höchstens auf die wahre Bedeutung hinweisen können. Helfen Sie also bitte dabei und lassen Sie sich nicht von dem Gesagten ablenken und konzentrieren Sie sich darauf, was die Worte in Dir hervorrufen. Wenn die Worte zu negativen Gefühlen führen, wurden die Worte nicht aufgenommen oder waren zu begrenzt, um leicht zu vermitteln was gemeint war. Bitte verwende  dies als Leitfaden, denn unter negativen Gefühlen erfasst man nicht die richtige Bedeutung. Es wird mehr Aufmerksamkeit und Selbstreflexion erfordern um zu bemerken, wann dies eintritt. Es wird vorgeschlagen 🔴 , dass man einfach das negative Gefühl vorübergehen lässt und fortfährt oder versucht, die Worte durchzugehen bis das beabsichtigte positive Ergebnis wahrgenommen wird.
 
 Der Spickzettel Mark V versucht, die Bedeutung einer Zusammenfassung zu vermitteln mit dem Viele keine nützliche Erfahrung haben, da wir noch nicht die Fähigkeiten haben, es zu schätzen. Bei den Versuchen Hilfsmittel zu entdecken kann man direktes persönliches Wissen gewinnen.
 
@@ -90,7 +90,7 @@ Dies ist die fünfte Iteration des Cheat Sheets. Es wurde über 12 Jahre entwick
 
 Es wird von Dir verlangen,  dass Du alles was Du über das Leben zu wissen glaubst, beiseite legst und wirklich offen bist. Diejenigen, die diese Methodik wirklich ausprobiert und angewendet haben, wurden vollständig verändert. Sie  können den Unterschied nicht beschreiben, aber sie wollen nicht wieder so werden, wie sie waren. Hier sind einige Dinge, über die Du wirklich nachdenken solltest, bevor Du beginnst, also sei ehrlich zu Dir selbst und nimm Dir etwas Zeit:
 
-Bist Du glücklich? Möchteest Du lieber Recht haben als glücklich sein? Wenn Du es für Dich ändern könntest, würdest Du es ändern?  Was ist, wenn es nicht darum geht, dass Deine Logik falsch ist, sondern Ihre Schlussfolgerungen darauf beruhen, dass Du nicht vollständig beobachten konntest, was Ihnen in Deinem Leben widerfahren ist?
+Bist Du glücklich? Möchteest Du lieber Recht haben als glücklich sein? Wenn Du es für Dich ändern könntest, würdest Du es ändern?  Was ist, wenn es nicht darum geht, dass Deine Logik falsch ist, sondern Ihre Schlussfolgerungen darauf beruhen, dass Du nicht vollständig beobachten konntest, was Dir in Deinem Leben widerfahren ist?
 
 
 #### Das Leben enthält keine Lektion. Das Leben ist die Lektion.
@@ -163,7 +163,7 @@ Mein bester Rat ist, sich zu entspannen. Du bist bereits dabei. Eigentlich warst
 
 Ich werde einen anderen Ansatz versuchen und vielleicht kannst Du sehen, worauf ich hinaus will. Ich zeige auf den Mond, aber lassen Sie  sich  nicht vom Finger ablenken.
 
-Es ist, als hätte man ein Wort „auf der Zunge“. Je mehr Du versuchst, Dich zu erinnern, desto mehr blockierst Du Deinen Prozess und desto mehr entzieht er sich Ihnen. Wenn Du dann um 3:00 Uhr morgens entspannt bist, kommt es automatisch zu Dir. Dies liegt daran, dass der   🔴 ???    „Speicher-Server“-Rückstand gelöscht werden durfte.   
+Es ist, als hätte man ein Wort „auf der Zunge“. Je mehr Du versuchst, Dich zu erinnern, desto mehr blockierst Du Deinen Prozess und desto mehr entzieht er sich Dir. Wenn Du dann um 3:00 Uhr morgens entspannt bist, kommt es automatisch zu Dir. Dies liegt daran, dass der   🔴 ???    „Speicher-Server“-Rückstand gelöscht werden durfte.   
 
 Weil diese Dinge, über die hier gesprochen wird, so nuanciert sind, dass Du nicht direkt darauf eingehen kannst. Der Grund dafür ist, dass das Ego (ich werde später darauf eingehen) die Jalousie an die gleiche Stelle bewegt, an der Ihre Augen hinsehen. Das ist seine Funktion. Ø wird von selbst kommen. Ich weiß, es wird. Sonst wärst Du jetzt nicht hier.
 
@@ -230,7 +230,7 @@ Verantwortlichkeit bedeutet die Konsequenzen zu akzeptieren, entweder positiv od
 
 ### Vertrauen
 
-Man muss dem Selbst vertrauen und dieses Vertrauen muss auf einem hohen Niveau sein, normalerweise jenseits dessen, womit wir uns wohl fühlen. Wenn wir im Moment nicht das Vertrauen haben, das für die Annahme des Vertrags erforderlich ist, wird unsere Bereitschaft den Vertrag einzugehen das hervorbringen, was ich "Vertrauensaufbauübungen" nenne. Dies sind Ereignisse in der eigenen Lebenserfahrung die einen dazu zwingen, ein höheres Vertrauen in sich selbst zu setzen, indem sie dem Ego die Fähigkeit nehmen, die Konsequenzen einer Entscheidung zu kennen die es treffen muss. Wenn man sich weigert die Wahl zu treffen, wird es zunehmend schwieriger eine Wahl zu treffen. Wenn Sie diese Übungen nicht durchmachen, wird der Vertrag nicht angenommen. Hier kann die Hilfe Anderer eine unschätzbare Hilfe sein, um die Blindheit des Egos hinter sich zu lassen. Es wird keine Antwort auf die Wahl geben, aber es kann das Vertrauen in den Prozess stärken.
+Man muss dem Selbst vertrauen und dieses Vertrauen muss auf einem hohen Niveau sein, normalerweise jenseits dessen, womit wir uns wohl fühlen. Wenn wir im Moment nicht das Vertrauen haben, das für die Annahme des Vertrags erforderlich ist, wird unsere Bereitschaft den Vertrag einzugehen das hervorbringen, was ich "Vertrauensaufbauübungen" nenne. Dies sind Ereignisse in der eigenen Lebenserfahrung die einen dazu zwingen, ein höheres Vertrauen in sich selbst zu setzen, indem sie dem Ego die Fähigkeit nehmen, die Konsequenzen einer Entscheidung zu kennen die es treffen muss. Wenn man sich weigert die Wahl zu treffen, wird es zunehmend schwieriger eine Wahl zu treffen. Wenn Du  diese Übungen nicht durchmachst, wird der Vertrag nicht angenommen. Hier kann die Hilfe Anderer eine unschätzbare Hilfe sein, um die Blindheit des Egos hinter sich zu lassen. Es wird keine Antwort auf die Wahl geben, aber es kann das Vertrauen in den Prozess stärken.
 
 
 Es ist auch nützlich, eine Reihe persönlicher Zeichen festzulegen, die das Selbst verwenden kann, um den Fortschritt in einer einzelnen Lektion anzuzeigen. Wenn man die Indikatoren akzeptiert, wird das Selbst sie verwenden, um einen über seine Position in der Lektion und Hinweise zum Navigieren in der Lektion zu informieren. Dies ist ein einfacher Zahlencode und man muss die Bedeutung der Zahlen kennen. Sie kommen als Zahlenfolgen, die man in seinem Leben um sich herum sieht.
@@ -239,11 +239,11 @@ Es ist auch nützlich, eine Reihe persönlicher Zeichen festzulegen, die das Sel
     
 #### * 222 oder ähnliche Variationen wie oben zeigen an dass nach Annahme der Lektion, die durch die 111 angezeigt wird, die Lektion darauf wartet in der Lebenserfahrung eingerichtet zu werden, um Kontinuität zu gewährleisten. Irgendwann müssen Menschen und Dinge  positioniert werden um den Unterricht sinnvoll zu gestalten, und dafür ist Zeit erforderlich. Diese Einrichtung ist möglicherweise nicht erforderlich, und man erhält mit der 222 andere Zahlen.  
     
-#### * 333 bedeutet "Ja" oder Sie sehen ein positives Beispiel.  
+#### * 333 bedeutet "Ja" oder Du siehst ein positives Beispiel.  
     
-#### * 444 zeigt "Nein" an oder Sie sehen ein negatives Beispiel oder was Sie nicht tun sollten.  
+#### * 444 zeigt "Nein" an oder Du siehst ein negatives Beispiel oder was Du  nicht tun solltest.  
     
-#### * 555 zeigt an, dass die Lektion eine Meister-Lektion ist und der erfolgreiche Abschluss eine bedeutende Veränderung im eigenen Leben bedeutet wenn sie gelernt wird. Erwarten Sie dass diese Lektion schwieriger ist und  Mühe beim  Navigieren bereitet.  
+#### * 555 zeigt an, dass die Lektion eine Meister-Lektion ist und der erfolgreiche Abschluss eine bedeutende Veränderung im eigenen Leben bedeutet wenn sie gelernt wird. Erwarte dass diese Lektion schwieriger ist und  Mühe beim  Navigieren bereitet.  
     
 #### * 666 zeigt an, dass sich die Lektion auf den fleischlichen oder physischen Bereich (Äußeres) bezieht.
     
@@ -290,7 +290,7 @@ Es ist hilfreich es wie ein Videospiel zu betrachten, bei dem eine Seite das Spi
 
 Unsere Herausforderungen haben mit dem Alter zu tun, in dem wir uns befinden. Ø hat diese Dualität erschaffen und uns dann vom Selbst getrennt, um zu erfahren wie es sich anfühlt, von Ø getrennt zu sein. Es war auch nützlich zu erfahren wie es ist, einen Anfang und ein Ende zu haben. Das gibt es in der Einheit nicht. Im Selbst sind wir eins in der Ewigkeit. Dies erfordert ein eher begrenztes Zeitgefühl.
 
-Dies ist die Eisenzeit und die Menschen des Altertums wussten, dass wir in diese Periode des extrem linkshirnigen Egos eintreten würden. Dies ändert sich jedoch. Aus diesem Grund sind Sie jetzt hier. Wir haben uns schlafen gelegt oder uns selbst einen Schabernack gespielt und jetzt ist es an der Zeit, aufzuwachen und die versteckte Kamera zu enthüllen. Alles ist zyklisch.
+Dies ist die Eisenzeit und die Menschen des Altertums wussten, dass wir in diese Periode des extrem linkshirnigen Egos eintreten würden. Dies ändert sich jedoch. Aus diesem Grund bist Du jetzt hier. Wir haben uns schlafen gelegt oder uns selbst einen Schabernack gespielt und jetzt ist es an der Zeit, aufzuwachen und die versteckte Kamera zu enthüllen. Alles ist zyklisch.
 
 
 Wenn Du in den Spiegel schaust, ist alles was du im Physischen siehst und erfährst, Ego.  Ø ist der von der Quantenmechanik angezeigte Beobachter, nicht das Ego! Das Ego hat die Absicht, aber das Ego kontrolliert nicht das Spiel, und es ist nicht das was die Lebenswellenform in ein Teilchen kollabiert, das wir als "jetzt" kennen. Das Selbst ist das Element, das die Position und den Zeitpunkt des resultierenden Teilchens bestimmt. Der Quantenphysiker schaut in den Spiegel und denkt, das Bild sei der Beobachter. Daher täuscht sich das Ego selbst indem es denkt, dass es das ist was kontrolliert, obwohl das Ego in Wirklichkeit nur der Akteur ist und der Regisseur oder das Selbst dem Akteur (Ego) sagt, was zu tun ist. Dies ist der Fehler, der den Hauptfehler in den Lehren des Gesetzes der Anziehung verursacht.
@@ -329,9 +329,7 @@ Erhöhtes Bewusstsein ist erhöhte Aufmerksamkeit, erhöhte Akzeptanz und erhöh
 4. Unkenntnis des Naturgesetzes  
 
 
-Man kann Wahnsinn nicht meistern, ohne zuerst Wahnsinn erlebt zu haben. Es ist eine Illusion, die höllisch weh tut. Sie müssen sich selbst verzeihen, dass Sie verrückt sind, denn dies war Ihr Ziel und das war notwendig. Machen Sie sich etwas locker. Wenn Sie sich  selbst nicht vergeben können, dann kann Ihnen auch keiner der in Ihrer Erfahrung wahrgenommenen Anderen  vergeben. Es liegt an Ihnen. Keine Notwendigkeit, Punkte zu halten. Wenn Sie denken, Ihr Leben sei ein Rennen oder eine Modenschau, dann lenken Sie sich nur von Ihrer eigenen Verwirrung ab.
-
-
+Man kann Wahnsinn nicht meistern, ohne zuerst Wahnsinn erlebt zu haben. Es ist eine Illusion, die höllisch weh tut. Du musst sich selbst verzeihen, dass Du verrückt bist, denn dies war Dein Ziel und das war notwendig. Mache Dich etwas locker. Wenn Du Dir selbst nicht vergeben kannst, dann kann Dir auch keiner der in Ihrer Erfahrung wahrgenommenen Anderen  vergeben. Es liegt an Dir. Keine Notwendigkeit, Punkte zu halten. Wenn Du  denkst, Dein Leben sei ein Rennen oder eine Modenschau, dann lenkst Du sich nur von Deiner eigenen Verwirrung ab.
 
 
 Verantwortungslosigkeit ist der Schlüssel zur Entrechtung. Verrückte haben keine Rechte, weil die Ausübung von Rechten Verantwortung erfordert. Die Verrückten sind inkompetent und die Gesunden haben die Verantwortung, sich um die Verrückten zu kümmern und sie zu behandeln.
@@ -340,7 +338,7 @@ Gerichte und Regierungen halten uns in unserem Ausgangszustand für verrückt, o
 
 Du musst wirklich wollen, dass sich Dein Zustand ändert, bevor Du überhaupt das Naturgesetz in Bezug auf Verträge lernen kannst. Du musst bereit sein Verantwortung für Dein Leben zu übernehmen, bevor Du überhaupt das 🔴  Gesetz verlangst.    Die Verrückten sind von Natur aus gesetzlos.
 
-Für mich war das Studium des Naturrechtsvertrags ausschlaggebend, denn um einen Vertrag abzuschließen, muss man kompetent und daher verantwortungsbewusst sein. Der Vertrag selbst enthält viele der Elemente, wie Sie später sehen werden.
+Für mich war das Studium des Naturrechtsvertrags ausschlaggebend, denn um einen Vertrag abzuschließen, muss man kompetent und daher verantwortungsbewusst sein. Der Vertrag selbst enthält viele der Elemente, wie Du später sehen wirst.
 
 
 
@@ -363,7 +361,7 @@ Nochmal:
 
 <p align="center"><b>Es kann keine wahre Erleuchtung und transzendente Wahrnehmung geben, ohne das Gesetz zu kennen. </b> </p>
 
-Nur für den Fall, dass Sie das nicht verstanden haben:
+Nur für den Fall, dass Du das nicht verstanden hast:
 
 <p align="center"><b>Es kann keine wahre Erleuchtung und transzendente Wahrnehmung geben, ohne das Gesetz zu kennen. </b> </p>
 
@@ -392,7 +390,7 @@ Ich interessierte mich sehr für Dinge, mit denen ich das 🔴 mache. Dies führ
 Dies führte zu einer Untersuchung darüber was Souveränität ist,  und wie Souveränität mit Verantwortung, Rechten und dem Vertragsrecht zusammenhängt. Später entdeckte ich, dass ein Großteil meiner Interaktion im Universum auf Vertrag beruhte und ich keine konstruktive Definition dafür hatte, was ein Naturgesetzvertrag ist oder wie ein Vertrag Macht und Kraft in der physischen Auswirkung manifestiert.
 
 
-Sobald ich eine nützliche Definition eines Naturrechtsvertrags hatte nutzte ich mein Wissen über Verträge, um ein Gleichgewicht zwischen Selbst und Ego zu erzwingen. Am Ende dieses Dokuments finden Sie das Verfahren, durch das Sie geführt werden, um diese Änderung herbeizuführen. Die konsequente Schwächung des Egos führt zu einer permanenten Veränderung der Wahrnehmung der Realität, die es jedem ermöglicht in einem kontinuierlichen Zustand der Freiheit und des Schutzes zu existieren. Bestehende Wahrnehmungsmodelle lassen diesen Zustand nicht zu, und schlimmer noch - sie hindern Menschen aktiv daran ihn zu erreichen, durch die kontinuierliche Einmischung des Egos in den Wahrnehmungsfilterungsprozess.
+Sobald ich eine nützliche Definition eines Naturrechtsvertrags hatte nutzte ich mein Wissen über Verträge, um ein Gleichgewicht zwischen Selbst und Ego zu erzwingen. Am Ende dieses Dokuments findest Du das Verfahren, durch das Du geführt wirst, um diese Änderung herbeizuführen. Die konsequente Schwächung des Egos führt zu einer permanenten Veränderung der Wahrnehmung der Realität, die es jedem ermöglicht in einem kontinuierlichen Zustand der Freiheit und des Schutzes zu existieren. Bestehende Wahrnehmungsmodelle lassen diesen Zustand nicht zu, und schlimmer noch - sie hindern Menschen aktiv daran ihn zu erreichen, durch die kontinuierliche Einmischung des Egos in den Wahrnehmungsfilterungsprozess.
 
 
 Gerade jetzt gilt das Naturgesetz im Universum, das wir als Realität wahrnehmen. Realität ist das, was "wirklich" ist. Wenn Fiktion für mich real ist, kann ich beginnen das Problem zu erkennen mit dem ich konfrontiert war.
@@ -410,9 +408,6 @@ Ich habe diese beiden Modelle getestet und sie scheinen wichtige Wahrheiten absi
 
 
 
----
-:scroll: 
-
 
 
 
@@ -420,21 +415,24 @@ Ich habe diese beiden Modelle getestet und sie scheinen wichtige Wahrheiten absi
 
 Zunächst muss man verstehen dass wir mit dem uneingeschränkten Recht existieren, einen Vertrag abzuschließen. Das ist ein wesentlicher Teil von uns, und das bedeutet unbegrenzt.  Dieses Recht kann in jede Richtung und zu jedem wahrgenommenen Zweck ausgeübt werden. Meistens haben wir als Spezies uns mit dem Ego zusammengetan, um uns im Austausch für unseren blinden Gehorsam gegenüber seinen Launen seine Illusion eines „starken freien Willens“ (der über unser eigenes Leben entscheidet) zu verschaffen. Diese Blindheit erstreckt sich auf unsere beinahen Gewissheit, dass unser Ego tatsächlich unser eigenes wahres Selbst sei.
 
-Ø hat keinen Grund, mit Ihnen zu umzugehen, wenn Sie nicht für sich selbst verantwortlich sind.
+Ø hat keinen Grund, mit Dir zu umzugehen, wenn Du nicht für Dich selbst verantwortlich bist.
 
-Souveränität wird gewährt von Ø und wenn Sie sich bereitwillig dafür entscheiden, sie zu erhalten. Sie erhalten immer eine konkrete und überzeugende Benachrichtigung, weil Sie wissen müssen wann das 🔴 passiert.
+Souveränität wird gewährt von Ø und wenn Du  Dich bereitwillig dafür entscheidest, sie zu erhalten. Du erhältst immer eine konkrete und überzeugende Benachrichtigung, weil Du wissen musst wann das 🔴 passiert.
 
-Souveränität beinhaltet die Verantwortung für den eigenen Körper und geht mit Rechten und vor allem Verantwortung für das eigene Verhalten einher. Da Souveränität auf Gegenseitigkeit beruht, wird sie vertraglich gewährt. Die Gewährung der Souveränität muss bereitwillig beantragt werden, da die gewährende Gewalt  ( Ø ) den Vertrag der die Souveränität begründet, nicht erzwingen oder eine Bereitschaft von Ihnen voraussetzen wird, wenn diese nicht offen zum Ausdruck gebracht wurde.
+Souveränität beinhaltet die Verantwortung für den eigenen Körper und geht mit Rechten und vor allem Verantwortung für das eigene Verhalten einher. Da Souveränität auf Gegenseitigkeit beruht, wird sie vertraglich gewährt. Die Gewährung der Souveränität muss bereitwillig beantragt werden, da die gewährende Gewalt  ( Ø ) den Vertrag der die Souveränität begründet, nicht erzwingen oder eine Bereitschaft von Dir voraussetzen wird, wenn diese nicht offen zum Ausdruck gebracht wurde.
 
 Wenn man durch die Folgen einer Tat  jemanden zum Opfer macht, wird Macht gegen den wahrgenommenen Täter arrangiert, um das Opfer auf Kosten des wahrgenommenen Täters zu heilen. Dies ist die Quelle negativer Folgen in unserem Leben. Dies kann besonders unangenehm für diejenigen sein, die sich selbst zu Opfern machen. Dieses Prinzip durchdringt alle Ebenen unseres Lebens.
 
-Souveränität wird nicht gewährt, wenn Sie das zum Schutz Ihrer Souveränität erforderliche Gesetz nicht kennen. Der Unterricht im Naturrecht (Gesetze auf der Ebene der Seele) steht an erster Stelle.
+
+
+---
+:scroll: 
 
 
 
-### Das natürliche Vertragsrecht
+### Das natürliche Vertragsrecht 
 
-Alle echten durchsetzbaren Verträge enthalten alle vier folgenden Elemente. Vollstreckbar bedeutet, dass Macht bei der Ausführung von Verträgen eingesetzt wird und Sie oder andere an Geschäftsbedingungen bindet. Wenn einem vermeintlichen Vertrag eines oder mehrere davon fehlen, wird er von Ø nicht durchgesetzt, es sei denn, Sie sind unwissend!
+Alle echten durchsetzbaren Verträge enthalten 🔴 diese vier folgenden Elemente. Vollstreckbar bedeutet, dass Macht bei der Ausführung von Verträgen eingesetzt wird und Dich  oder Andere an Geschäftsbedingungen bindet. Wenn einem vermeintlichen Vertrag eines oder mehrere davon fehlen, wird er von Ø nicht durchgesetzt, es sei denn, Du bist unwissend!
 
 Ein Naturrechtsvertrag muss enthalten:
 
@@ -477,7 +475,7 @@ Das Geschaffene ist niemals mächtiger als sein Schöpfer. Ø erschafft das bewu
 Unkenntnis des Naturgesetzes ist keine Entschuldigung. Wenn Sie Ø kennen, kennen Sie das Gesetz. 
 Hinweis!  Sagen Sie es langsam: Ignor-anz.  Diejenigen, die nicht im Besitz all ihrer Fähigkeiten sind oder sich von Ø abgewandt haben, werden nach dem Naturrecht von Gerichten als unfähig beurteilt und unterliegen der vorherrschenden gesetzlichen Autorität.
 
-**Um den Vertrag mit dem Heiligen Gral umzusetzen, nachdem Ø Sie von Ihrer Souveränität benachrichtigt hat, steht es Ihnen frei, einen Vertrag mit Ø zu schließen, indem Sie Folgendes sagen: „Ich werde Ihnen bedingungslos vertrauen, wenn Sie mir meine Fähigkeit jemandem zum Opfer zu machen, entziehen.**
+**Um den Vertrag mit dem Heiligen Gral umzusetzen, nachdem Ø Sie von Ihrer Souveränität benachrichtigt hat, steht es Dir frei, einen Vertrag mit Ø zu schließen, indem Sie Folgendes sagen: „Ich werde Dir bedingungslos vertrauen, wenn Sie mir meine Fähigkeit jemandem zum Opfer zu machen, entziehst.**
 
 
 
