@@ -425,9 +425,6 @@ Wenn man durch die Folgen einer Tat  jemanden zum Opfer macht, wird Macht gegen 
 
 
 
----
-:scroll: 
-
 
 
 ### Das natürliche Vertragsrecht 
@@ -438,13 +435,18 @@ Ein Naturrechtsvertrag muss enthalten:
 
 1. Ein Angebot - Man muss zuerst ein Geschäft erbitten oder präsentieren  
     
-2. Eine Annahme - Ein anderer muss das Angebot oder den Deal annehmen  
+2. Eine Annahme - Ein anderer muss das Angebot oder das Geschäft annehmen  
     
 3. Ein Austausch von echter Gegenleistung - Man tut etwas, wenn ein anderer etwas tut oder etwas für etwas  anderes hergibt.  Fiktion zählt nicht als real, und das darf man nicht vergessen! Dies war der Schlüssel zur staatlichen, religiösen und wirtschaftlichen Versklavung. Die Täter können dies im Naturrecht nicht wirklich ohne unangenehme Folgen tun, also schaffen sie eine fiktive Einheit oder eine "Fiktion des Rechts“, die dies 🔴 kann. Das Problem ist, dass wir verwirrt sind und denken, dass diese Fiktionen in den Köpfen der Menschen real sind und echte Macht über uns haben. Autsch!  
     
 4. Vorliegen korrespondierender Willenserklärungen (Meeting of the Minds) - Ein Vertrag muss zwischen zwei Menschen geschlossen werden. Ein Stück Papier ist nur eine Dokumentation und an sich kein Vertrag, auch wenn darauf hingewiesen wird, dass dies der Fall ist. Ø hat einen Verstand und daher die Macht, einen Vertrag abzuschließen, und manifestiert die Macht der Durchsetzung. Legale Fiktionen haben keinen Verstand!  
     
-    
+
+---
+:scroll: 
+
+
+   
 
 ### Die tatsächliche Durchsetzung des Naturrechtsvertrags wird wie folgt vollzogen:
 
