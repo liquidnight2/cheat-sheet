@@ -354,7 +354,6 @@ Das Leben oder die Realität kann wie ein Film betrachtet werden. Wir identifizi
 
 
 
-
 ### Das Gesetz
 
 Zuerst:
@@ -362,49 +361,48 @@ Zuerst:
 
 Nochmal:
 
-#### Es kann keine wahre Erleuchtung und transzendente Wahrnehmung geben, ohne das Gesetz zu kennen.
+<p align="center"><b>Es kann keine wahre Erleuchtung und transzendente Wahrnehmung geben, ohne das Gesetz zu kennen. </b> </p>
 
 Nur für den Fall, dass Sie das nicht verstanden haben:
 
-#### Es kann keine wahre Erleuchtung und transzendente Wahrnehmung geben, ohne das Gesetz zu kennen.
+<p align="center"><b>Es kann keine wahre Erleuchtung und transzendente Wahrnehmung geben, ohne das Gesetz zu kennen. </b> </p>
 
 
 Der Prozess, ein Gleichgewicht zwischen Ego und Selbst herzustellen, erfolgt durch die Anwendung des Naturgesetzes.
 
 
+Ich wusste nicht einmal, wo ich anfangen sollte, also las ich die Unabhängigkeitserklärung und die US-Verfassung. Es wurde gesagt, dass es auf biblischem Gesetz basiere und ich wollte sehen ob das der Fall ist. Nachdem ich diese Dokumente gelesen hatte, war ich noch verwirrter. Es schien ziemlich einfach, aber wenn sie das „Gesetz des Landes“ waren, was ist dann all dieses dumme Zeug, das in diesen Dokumenten keinen Bezug hatte. Ich ging zur Bibel um zu sehen ob ich einen Sinn darin erkennen könnte.
 
----
-:scroll: 
-
-
-
-Ich wusste nicht einmal, wo ich anfangen sollte, also las ich die Unabhängigkeitserklärung und die US-Verfassung. Es wurde gesagt, dass es auf biblischem Gesetz basiere, und ich wollte sehen, ob das der Fall ist. Nachdem ich diese Dokumente gelesen hatte, war ich noch verwirrter. Es schien ziemlich einfach, aber wenn sie das „Gesetz des Landes“ waren, was ist dann all dieses dumme Zeug, das in diesen Dokumenten keinen Bezug hatte. Ich ging zur Bibel, um zu sehen, ob ich einen Sinn darin erkennen könnte.
-
-Ich hatte eine grundlegende Hürde, die ich zuerst überwinden musste, und diese ergab sich aus einer Studie darüber, was wir als die 10 Gebote kennen und was das große Problem an ihnen war. Ich hatte meine Spielerei mit der Religion und das war eine Mauer, als ich bemerkte, dass die Religion das Buch, mit dem sie sich so beschäftigt, oft nicht versteht. Ich schaute auf das Erste Gebot, um zu sehen, ob ich es verletzte: "Du sollst keine anderen Götter neben mir haben!". Die Leute sagten mir, das sei die Gründung des Monotheismus, aber für mich war es wichtig zu verstehen, warum ein „Höchstes Wesen“ Konkurrenz tolerieren muss. Warum nicht einfach einpacken und fertig. Im Verständnis dessen, was als „Götter“ bezeichnet wird. Ein "Gott" ist jeder Mann, jede Frau, jedes Objekt und sogar jedes mentale Konstrukt, das nicht Ø (Wahrheit) ist. Wenn wir einer Fiktion über uns mentale Macht verleihen, dann gibt Ø dieser Fiktion wirkliche Macht über uns, indem Ø unseren Willen anerkennt.
-
-Warten Sie!
-
-Bedeutete das, dass es meine Wahl war?!
-
-Ich habs geschafft?!
-
-Es war meine Verantwortung und es war nur meine eigene Dummheit?!
-
-Jawohl!
+Ich hatte eine grundlegende Hürde, die ich zuerst überwinden musste, und diese ergab sich aus einer Studie darüber, was wir als die 10 Gebote kennen und was das große Problem an ihnen war. Ich hatte meine 🔴 Spielerei mit der Religion, und das war eine Mauer als ich bemerkte dass die Religion das Buch, mit dem sie sich so beschäftigt, oft nicht versteht. Ich schaute auf das Erste Gebot um zu sehen, ob ich es verletzte: "Du sollst keine anderen Götter neben mir haben!". Die Leute sagten mir, das sei die Gründung des Monotheismus, aber für mich war es wichtig zu verstehen, warum ein „Höchstes Wesen“ Konkurrenz tolerieren muss. Warum nicht einfach einpacken und fertig. Im Verständnis dessen, was als „Götter“ bezeichnet wird. Ein "Gott" ist jeder Mann, jede Frau, jedes Objekt und sogar jedes mentale Konstrukt, das nicht Ø (Wahrheit) ist. Wenn wir einer Fiktion über uns mentale Macht verleihen, dann gibt Ø dieser Fiktion wirkliche Macht über uns, indem Ø unseren Willen anerkennt.
 
 
-Ich interessierte mich sehr für Dinge, mit denen ich das 🔴 mache. Dies führte zu einem weiteren wichtigen Aspekt des Rechts. Wenn Sie um Erlaubnis bitten, wird gesetzlich davon ausgegangen, dass Sie eine Erlaubnis benötigen. Das musste ich sofort streichen. Bald begann ich, fast magisch, all die Fiktionen zu entdecken, denen ich Macht über mich gab. Sobald ich das bemerkte, verloren sie die Kraft.
+#### Warte!
 
-Dies führte zu einer Untersuchung darüber was Souveränität ist,  und wie Souveränität mit Verantwortung, Rechten und dem Vertragsrecht zusammenhängt. Später entdeckte ich, dass ein Großteil meiner Interaktion im Universum auf Vertrag beruhte und ich keine konstruktive Definition dafür hatte, was ein Naturgesetzvertrag ist oder wie ein Vertrag Kraft und Kraft in der physischen Auswirkung manifestiert.
+#### Bedeutete das, dass es meine Wahl war?!
+
+#### Ich habs geschafft?!
+
+#### Es war meine Verantwortung und es war nur meine eigene Dummheit?!
+
+#### Ja!
 
 
-Sobald ich eine nützliche Definition eines Naturrechtsvertrags hatte, nutzte ich mein Wissen über Verträge, um ein Gleichgewicht zwischen Selbst und Ego zu erzwingen. Am Ende dieses Dokuments finden Sie das Verfahren, durch das Sie geführt werden, um diese Änderung herbeizuführen. Die konsequente Schwächung des Egos führt zu einer permanenten Veränderung der Wahrnehmung der Realität, die es jedem ermöglicht in einem kontinuierlichen Zustand der Freiheit und des Schutzes zu existieren. Bestehende Wahrnehmungsmodelle lassen diesen Zustand nicht zu, und schlimmer noch, hindern Menschen aktiv daran ihn zu erreichen, durch die kontinuierliche Einmischung des Egos in den Wahrnehmungsfilterungsprozess.
+Ich interessierte mich sehr für Dinge, mit denen ich das 🔴 mache. Dies führte zu einem weiteren wichtigen Aspekt des Rechts. Wenn Du um Erlaubnis bittest, wird gesetzlich🔴 davon ausgegangen, dass Du eine Erlaubnis benötigst. Das musste ich sofort streichen. Bald begann ich fast magisch, all die Fiktionen zu entdecken, denen ich Macht über mich gab. Sobald ich das bemerkte, verloren sie die Kraft.
+
+Dies führte zu einer Untersuchung darüber was Souveränität ist,  und wie Souveränität mit Verantwortung, Rechten und dem Vertragsrecht zusammenhängt. Später entdeckte ich, dass ein Großteil meiner Interaktion im Universum auf Vertrag beruhte und ich keine konstruktive Definition dafür hatte, was ein Naturgesetzvertrag ist oder wie ein Vertrag Macht und Kraft in der physischen Auswirkung manifestiert.
+
+
+Sobald ich eine nützliche Definition eines Naturrechtsvertrags hatte nutzte ich mein Wissen über Verträge, um ein Gleichgewicht zwischen Selbst und Ego zu erzwingen. Am Ende dieses Dokuments finden Sie das Verfahren, durch das Sie geführt werden, um diese Änderung herbeizuführen. Die konsequente Schwächung des Egos führt zu einer permanenten Veränderung der Wahrnehmung der Realität, die es jedem ermöglicht in einem kontinuierlichen Zustand der Freiheit und des Schutzes zu existieren. Bestehende Wahrnehmungsmodelle lassen diesen Zustand nicht zu, und schlimmer noch - sie hindern Menschen aktiv daran ihn zu erreichen, durch die kontinuierliche Einmischung des Egos in den Wahrnehmungsfilterungsprozess.
 
 
 Gerade jetzt gilt das Naturgesetz im Universum, das wir als Realität wahrnehmen. Realität ist das, was "wirklich" ist. Wenn Fiktion für mich real ist, kann ich beginnen das Problem zu erkennen mit dem ich konfrontiert war.
 
 Wenn ich jeden Tag mit dem Osterhasen reden würde, würde ich mir auch nichts Wichtiges anvertrauen.
 
+
+
+---
+:scroll: 
 
 
 
