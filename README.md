@@ -442,8 +442,6 @@ Ein Naturrechtsvertrag muss enthalten:
 4. Vorliegen korrespondierender Willenserklärungen (Meeting of the Minds) - Ein Vertrag muss zwischen zwei Menschen geschlossen werden. Ein Stück Papier ist nur eine Dokumentation und an sich kein Vertrag, auch wenn darauf hingewiesen wird, dass dies der Fall ist. Ø hat einen Verstand und daher die Macht, einen Vertrag abzuschließen, und manifestiert die Macht der Durchsetzung. Legale Fiktionen haben keinen Verstand!  
     
 
----
-:scroll: 
 
 
    
@@ -452,21 +450,26 @@ Ein Naturrechtsvertrag muss enthalten:
 
 1. Alle Verträge sind mündlich  
     
-2. Ihr Wort ist Ihre Verpflichtung. Brich dein Wort und es ist eine Fessel. (Probieren Sie es aus!)  
+2. Ihr Wort ist Ihre Verpflichtung. Brich dein Wort und es ist eine Fessel. (Probiere es aus!)  
     
-3. ALLE VERTRÄGE SIND FREIWILLIG! Sie können nicht zu einem Vertrag gezwungen werden. Eine erzwungene Vereinbarung wird von  Ø ignoriert, und es wird keine Macht aufgestellt, um die Bedingungen durchzusetzen. Sie können nicht gezwungen werden, Ihre Rechte aufzugeben, aber Sie können sich durch Verwirrung dazu bringen, Ihre Rechte freiwillig aufzugeben (das heißt sich selbst zu versklaven). Praktischerweise wird uns das nicht beigebracht.  
+3. ALLE VERTRÄGE SIND FREIWILLIG! Du kannst nicht zu einem Vertrag gezwungen werden. Eine erzwungene Vereinbarung wird von  Ø ignoriert, und es wird keine Macht aufgestellt, um die Bedingungen durchzusetzen. Du kannst nicht gezwungen werden, Deine Rechte aufzugeben, aber Du kannst Dich durch Verwirrung dazu bringen, Deine Rechte freiwillig aufzugeben (das heißt sich selbst zu versklaven). Praktischerweise wird uns das nicht beigebracht.  
     
-4. BEI ALLEN VERTRÄGEN MUSS DER KÄUFER AUFPASSEN! Sie sind dafür verantwortlich, zu wissen worauf Sie sich einlassen.
+4. BEI ALLEN VERTRÄGEN MUSS DER KÄUFER AUFPASSEN! Du bist dafür verantwortlich, zu wissen worauf Du Dich einlässt.
+
 
 🔴 !!!
  Sie müssen über angemessene Mittel verfügen, um die Vertragsbedingungen zu erfahren.
  
- Sie müssen über angemessene Mittel verfügen die Vertragsbedingungen zu erfahren, damit der Vertrag entsteht. 
+ Du musst über angemessene Mittel verfügen, die Vertragsbedingungen zu erfahren, damit der Vertrag entsteht. 
 -!!!
  
   Dies ist ein weiterer Weg 🔴 den wir an unsere Ignoranz verlieren. Sie 🔴 sagen uns selten, was die Bedingungen sind, und wir fragen selten!  
     
-5. Wenn Sie sich nach geltendem Recht so verhalten, als ob ein Vertrag in Kraft wäre, wird davon ausgegangen (sogar von Ø), dass tatsächlich ein Vertrag besteht. Wenn Sie sich vertragsgebunden verhalten, erkennt Ø die Situation als vertragsgebunden an. Es bedeutet nicht, dass ein tatsächlicher Vertrag in Kraft ist. Das bedeutet, dass es so aussieht, als wäre ein Vertrag in Kraft, weil Sie es nicht besser wissen. Wenn es wie eine Ente watschelt, wie eine Ente quakt und wie eine Ente aussieht, dann ist es eine Ente. Unser Heilung ist Bildung.  
+5. Wenn Du  Dich nach geltendem Recht so verhältst, als ob ein Vertrag in Kraft wäre, wird davon ausgegangen (sogar von Ø), dass tatsächlich ein Vertrag besteht. Wenn Du Dich vertragsgebunden verhältst, erkennt Ø die Situation als vertragsgebunden an. Es bedeutet nicht, dass ein tatsächlicher Vertrag in Kraft ist. Das bedeutet, dass es so aussieht, als wäre ein Vertrag in Kraft, weil Du es nicht besser weißt. Wenn es wie eine Ente watschelt, wie eine Ente quakt und wie eine Ente aussieht, dann ist es eine Ente. Bildung ist unser Heilmittel.
+
+
+---
+:scroll: 
     
 
 
