@@ -318,11 +318,9 @@ Wenn wir nicht auf das achten, was passiert, oder nicht akzeptieren was wir sehe
 Erhöhtes Bewusstsein ist erhöhte Aufmerksamkeit, erhöhte Akzeptanz und erhöhte Verantwortung, und dies ermöglicht das Lernen von Lektionen ohne die negative Verstärkung durch erhebliches Leiden.
 
 
-
-
 ### Die Hauptelemente des Wahnsinns sind:
 
-1. Das Schwelgen Sie in der Fiktion; Dem was nur im Geiste existiert, Macht geben.
+1. Das Schwelgen in der Fiktion;  Dem was nur im Geiste existiert, Macht geben.
     
 2. Ein Mangel an konstruktiver Verantwortung, da wir nicht reagieren (apathisch)  oder unsere Antwort nicht angemessen ist (Verantwortungslosigkeit)  
     
@@ -331,32 +329,28 @@ Erhöhtes Bewusstsein ist erhöhte Aufmerksamkeit, erhöhte Akzeptanz und erhöh
 4. Unkenntnis des Naturgesetzes  
 
 
+Man kann Wahnsinn nicht meistern, ohne zuerst Wahnsinn erlebt zu haben. Es ist eine Illusion, die höllisch weh tut. Sie müssen sich selbst verzeihen, dass Sie verrückt sind, denn dies war Ihr Ziel und das war notwendig. Machen Sie sich etwas locker. Wenn Sie sich  selbst nicht vergeben können, dann kann Ihnen auch keiner der in Ihrer Erfahrung wahrgenommenen Anderen  vergeben. Es liegt an Ihnen. Keine Notwendigkeit, Punkte zu halten. Wenn Sie denken, Ihr Leben sei ein Rennen oder eine Modenschau, dann lenken Sie sich nur von Ihrer eigenen Verwirrung ab.
 
 
----
-:scroll: 
-    
 
 
-    
+Verantwortungslosigkeit ist der Schlüssel zur Entrechtung. Verrückte haben keine Rechte, weil die Ausübung von Rechten Verantwortung erfordert. Die Verrückten sind inkompetent und die Gesunden haben die Verantwortung, sich um die Verrückten zu kümmern und sie zu behandeln.
 
-Man kann Wahnsinn nicht meistern, ohne zuerst Wahnsinn erlebt zu haben. Es ist eine Illusion, die höllisch weh tut. Sie müssen sich selbst verzeihen, dass Sie verrückt sind, denn dies war Ihr Ziel und es ist notwendig. Machen Sie sich etwas locker. Wenn Sie sich  selbst nicht vergeben können, dann kann Ihnen auch keiner der wahrgenommenen anderen in Ihrer Erfahrung vergeben. Es liegt an Ihnen. Keine Notwendigkeit, Punkte zu halten. Wenn Sie denken, Ihr Leben sei ein Rennen oder eine Modenschau, dann lenken Sie sich nur von Ihrer eigenen Verwirrung ab.
+Gerichte und Regierungen halten uns in unserem Ausgangszustand für verrückt, ohne Verantwortungsbewusstsein und ohne Rechte, es sei denn wir können beweisen, dass wir nicht verrückt sind. Das Problem ist dass wir weiterhin glauben, dass Fiktion real sei.  Wir kennen das Naturgesetz nicht und wir wissen nicht, wie wir uns das antun. Deshalb ist die Welt zu einem Irrenhaus geworden, in dem die Geisteskranken von anderen behandelt werden, die selbst geisteskrank sind. Der letzte Versuch, unseren Wahnsinn zu heilen, wird darin bestehen, dass wir gefoltert werden, bis wir entweder aus ihm herausbrechen oder sterben. Schauen Sie sich um und willkommen in der "Modernen Zeit".
 
-Verantwortungslosigkeit ist der Schlüssel zur Entrechtung. Geisteskranke haben keine Rechte, weil die Ausübung von Rechten Verantwortung erfordert. Die Verrückten sind inkompetent und die Gesunden haben die Verantwortung, sich um die Verrückten zu kümmern und sie zu behandeln.
-
-Gerichte und Regierungen halten uns in unserem Ausgangszustand für geisteskrank, ohne Verantwortungsbewusstsein und ohne Rechte, es sei denn, wir können beweisen, dass wir nicht geisteskrank sind. Das Problem ist, dass wir weiterhin glauben, dass Fiktion real ist. Wir kennen das Naturgesetz nicht, und wir wissen nicht, wie wir uns das antun. Deshalb ist die Welt zu einem Irrenhaus geworden, in dem die Geisteskranken von anderen behandelt werden, die selbst geisteskrank sind. Der letzte Versuch, unseren Wahnsinn zu heilen, wird darin bestehen, dass wir gefoltert werden, bis wir entweder aus ihm herausbrechen oder sterben. Schauen Sie sich um und willkommen in der "Modernen Zeit".
-
-Man muss wirklich wollen, dass sich sein Zustand ändert, bevor man überhaupt das Naturgesetz in Bezug auf Verträge lernen kann. Man muss bereit sein, Verantwortung für sein Leben zu übernehmen, bevor man überhaupt das Gesetz verlangt. Die Verrückten sind von Natur aus gesetzlos.
+Du musst wirklich wollen, dass sich Dein Zustand ändert, bevor Du überhaupt das Naturgesetz in Bezug auf Verträge lernen kannst. Du musst bereit sein Verantwortung für Dein Leben zu übernehmen, bevor Du überhaupt das 🔴  Gesetz verlangst.    Die Verrückten sind von Natur aus gesetzlos.
 
 Für mich war das Studium des Naturrechtsvertrags ausschlaggebend, denn um einen Vertrag abzuschließen, muss man kompetent und daher verantwortungsbewusst sein. Der Vertrag selbst enthält viele der Elemente, wie Sie später sehen werden.
 
-### Die Mittel zur Kommunikation des Fluchtprozesses.
 
-Die linke Gehirnhälfte/das Ego kommuniziert in geschriebenen und gesprochenen Worten und deshalb sind Beschreibungen über die Existenz in der rechten Gehirnhälfte/dem Selbst schwierig, weil uns die Sprache fehlt, um es zu beschreiben. In Wirklichkeit erfordert der Mangel an Kontext, dass man das Paradigma der rechten Gehirnhälfte nicht als das beschreibt, was es ist, sondern als das, was es nicht ist. Um in das richtige Paradigma einzutreten, muss man nicht „etwas tun“, „etwas denken“ oder „etwas fühlen“, sondern es erfordert „Nicht-Tun“, „Nicht-Denken“ und „Nicht-Fühlen“. Dies ist ein passiver Akt der Verdrängung durch das Ego. Anders gesagt: Sie können die Tür nicht finden. Sie müssen anhalten und warten, bis die Tür Sie findet. Eine andere Möglichkeit, es zu verstehen, ist, dass das Selbst die egoische Struktur der Tür und einen Schlüssel für die linke Gehirnhälfte hervorbringt.
 
-Es braucht ein Selbst, um den Schlüssel umzudrehen und die Tür zu öffnen. Einmal vor der Tür, sind der Schlüssel und die Tür bedeutungslos. Das Paradigma der linken Gehirnhälfte ist wie ein „Raum“, eine Umhüllung, die man verlässt, anstatt dass der Übergang darin besteht, in irgendetwas „hineinzugehen“. Da das Ego es hasst, keine Kontrolle zu haben, ist es normalerweise ziemlich schwierig, wenn nicht sogar unmöglich, es so weit zu beruhigen, dass man in der Lage ist, das angemessene „Nicht-Handeln“ zu üben.
+### Die Hilfsmittel zur Beschreibung des Ausweges
 
-Das Leben oder die Realität kann wie ein Film betrachtet werden. Wir identifizieren uns so sehr mit dem Schauspieler auf der Leinwand, dass wir zusammenzucken, wenn das Monster auftaucht. Als wir springen, erkennen wir, dass wir auf dem Sitz sitzen und Popcorn essen. Es braucht einen Ruck. Das Gesetz der Anziehung besagt, dass der Schauspieler die Handlung durch Absicht kontrolliert. Es ist tatsächlich der Autor und Regisseur des Films (Self), der die Handlung zum Wohle des Beobachters im Publikum steuert. Der Schauspieler ist nur die Puppe in einem Puppenspiel.
+Die linke Gehirnhälfte/das Ego kommuniziert in geschriebenen und gesprochenen Worten und deshalb sind Beschreibungen über die Existenz in der rechten Gehirnhälfte/dem Selbst schwierig, weil uns die Sprache fehlt, um es zu beschreiben. In Wirklichkeit erfordert der Mangel an Kontext dass man das Paradigma der rechten Gehirnhälfte nicht als das beschreibt was es ist, sondern als das was es nicht ist. Um in das richtige Paradigma einzutreten, muss man nicht „etwas tun“, „etwas denken“ oder „etwas fühlen“, sondern es erfordert „Nicht-Tun“, „Nicht-Denken“ und „Nicht-Fühlen“. Dies ist ein passiver Akt der Verdrängung durch das Ego. Anders gesagt: Du kannst die Tür nicht finden. Du musst anhalten und warten, bis die Tür dich findet. Eine andere Möglichkeit, es zu verstehen, ist, dass das Selbst die egoische Struktur der Tür und einen Schlüssel für die linke Gehirnhälfte hervorbringt.
+
+Es braucht ein Selbst um den Schlüssel umzudrehen und die Tür zu öffnen. Einmal vor der Tür, sind der Schlüssel und die Tür bedeutungslos. Das Paradigma der linken Gehirnhälfte ist wie ein „Raum“, eine Umhüllung, die man verlässt, anstatt dass der Übergang darin besteht, in irgendetwas „hineinzugehen“. Da das Ego es hasst keine Kontrolle zu haben, ist es normalerweise ziemlich schwierig wenn nicht sogar unmöglich, es so weit zu beruhigen, dass man in der Lage ist das angemessene „Nicht-Handeln“ zu üben.
+
+Das Leben oder die Realität kann wie ein Film betrachtet werden. Wir identifizieren uns so sehr mit dem Schauspieler auf der Leinwand dass wir zusammenzucken, wenn das Monster auftaucht. Als wir emporschnellen, erkennen wir dass wir auf dem Sitz sitzen und Popcorn essen. Es braucht einen Ruck. Das Gesetz der Anziehung besagt dass der Schauspieler die Handlung durch seine Absicht steuert. Es ist tatsächlich der Autor und Regisseur des Films (Self), der die Handlung zum Wohle des Beobachters im Publikum steuert. Der Schauspieler ist nur die Puppe in einem Puppenspiel.
 
 
 
@@ -365,18 +359,25 @@ Das Leben oder die Realität kann wie ein Film betrachtet werden. Wir identifizi
 
 Zuerst:
 
-Es kann keine wahre Erleuchtung und transzendente Wahrnehmung geben, ohne das Gesetz zu kennen.
+#### Es kann keine wahre Erleuchtung und transzendente Wahrnehmung geben, ohne das Gesetz zu kennen.
 
 Nochmal:
 
-Es kann keine wahre Erleuchtung und transzendente Wahrnehmung geben, ohne das Gesetz zu kennen.
+#### Es kann keine wahre Erleuchtung und transzendente Wahrnehmung geben, ohne das Gesetz zu kennen.
 
 Nur für den Fall, dass Sie das nicht verstanden haben:
 
-Es kann keine wahre Erleuchtung und transzendente Wahrnehmung geben, ohne das Gesetz zu kennen.
+#### Es kann keine wahre Erleuchtung und transzendente Wahrnehmung geben, ohne das Gesetz zu kennen.
 
 
 Der Prozess, ein Gleichgewicht zwischen Ego und Selbst herzustellen, erfolgt durch die Anwendung des Naturgesetzes.
+
+
+
+---
+:scroll: 
+
+
 
 Ich wusste nicht einmal, wo ich anfangen sollte, also las ich die Unabhängigkeitserklärung und die US-Verfassung. Es wurde gesagt, dass es auf biblischem Gesetz basiere, und ich wollte sehen, ob das der Fall ist. Nachdem ich diese Dokumente gelesen hatte, war ich noch verwirrter. Es schien ziemlich einfach, aber wenn sie das „Gesetz des Landes“ waren, was ist dann all dieses dumme Zeug, das in diesen Dokumenten keinen Bezug hatte. Ich ging zur Bibel, um zu sehen, ob ich einen Sinn darin erkennen könnte.
 
