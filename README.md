@@ -358,8 +358,9 @@ Das Leben oder die Realität kann wie ein Film betrachtet werden. Wir identifizi
 ### Das Gesetz
 
 Zuerst:
-
+<p align="center">
 #### Es kann keine wahre Erleuchtung und transzendente Wahrnehmung geben, ohne das Gesetz zu kennen.
+</p>
 
 Nochmal:
 
