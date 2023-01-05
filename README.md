@@ -8,7 +8,8 @@
 
 
 <p>
-	This is not finished yet!
+	This is not finished yet!	27 red dots.
+	
 	<img src="https://cdn.discordapp.com/attachments/1058431906544373810/1060363134000431164/WIP_A.png" width="200" align="right" />
 </p> <br/> <br/> <br/>
 
