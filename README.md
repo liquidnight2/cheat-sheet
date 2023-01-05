@@ -10,7 +10,8 @@
 <p>
 	This is not finished yet!
 	<img src="https://cdn.discordapp.com/attachments/1058431906544373810/1060363134000431164/WIP_A.png" width="200" align="right" />
-</p>
+</p> <br/> <br/> <br/>
+
 
 <hr break="all"/>
 
@@ -517,15 +518,16 @@ Viele haben Schwierigkeiten, etwas zu vertrauen das sie nicht sehen können, als
 Wenn der Souveränitätsvertrag akzeptiert wird, erlebst Du oft einen Strom vergangener Erinnerungen und Bilder von Ereignissen, die sich in Deine Vergangenheit ereignet haben. Wenn Du nicht aufpasst, werden diese Bilder immer wieder abgespielt, bis Du aufpasst und das Ereignis als wertvoll für Dich akzeptierst. Dies kann Dich die ganze Nacht wach halten, während Du nicht weißt was passiert.
 
 
+
+
+Der Schlüssel liegt darin, zu erkennen, warum das Bild, Konzept oder Ereignis wichtig ist -  Was ist der Zweck dessen was passiert, oder warum wird es Dir gezeigt? Es gibt immer für alles einen Grund. Du musst es herausfinden. Wenn Du nicht weiterkommst, musst Du um weitere Klärung bitten, und dann wird es wahrscheinlich in Träumen oder im wirklichen Leben durch reale Erfahrungen demonstriert. Hier werden Interaktionen wichtig, da Du Dein Ereignis mit jemandem mitteilen kannst der es objektiv betrachten kann, ohne das Ereignis mit einer persönlichen Voreingenommenheit zu verdrehen.
+
+
+Dieser Prozess des Lösens des Elements, auf das Deine bewusste Aufmerksamkeit gelenkt wird, wiederholt sich immer wieder, bis der ganze Zweck für alle bedeutungsvollen Ereignisse in Deinem Leben bestimmt ist. Es beginnt einfach mit neugierigen Fragen über das eigene Leben, die beantwortet werden. Dann bewegt sich der Prozess, um die Natur von unangenehmeren Ereignissen zu enthüllen. Ein Hauptziel des Prozesses ist es langsam Vertrauen in den Prozess und insbesondere in Ø zu entwickeln und dann mehr Mut zu entwickeln, sich mit immer unbequemeren "dunklen Lebensinhalten" auseinanderzusetzen. Dir werden Dinge offenbart, an Du Dich vorher nicht erinnern konntest,  🔴 weil Du neuen Mut hast, das Erlebte zu verarbeiten. Es ist ein bewusster Prozess, der Dich im angenehmsten Tempo durch Deine Geschichte bewegt.
+
+
 ---
 :scroll: 
-
-
-
-Der Schlüssel liegt darin, zu erkennen, warum das Bild, Konzept oder Ereignis wichtig ist -  Was ist der Zweck dessen was passiert, oder warum wird es Ihnen gezeigt? Es gibt immer für alles einen Grund. Sie müssen es herausfinden. Wenn Sie nicht weiterkommen, müssen Sie um weitere Klärung bitten, und dann wird es wahrscheinlich in Träumen oder im wirklichen Leben durch reale Erfahrungen demonstriert. Hier werden Interaktionen wichtig, da Sie Ihr Ereignis mit jemandem teilen können der es objektiv betrachten kann, ohne das Ereignis mit einer persönlichen Voreingenommenheit zu verdrehen.
-
-
-Dieser Prozess des Lösens des Elements, auf das Ihre bewusste Aufmerksamkeit gelenkt wird, wiederholt sich immer wieder, bis der ganze Zweck für alle bedeutungsvollen Ereignisse in Ihrem Leben bestimmt ist. Es beginnt einfach mit neugierigen Fragen über das eigene Leben, die beantwortet werden. Dann bewegt sich der Prozess, um die Natur von unangenehmeren Ereignissen zu enthüllen. Ein Hauptziel des Prozesses ist es, langsam Vertrauen in den Prozess und insbesondere in Ø zu entwickeln und dann mehr Mut zu entwickeln, sich mit immer unbequemeren „dunklen Lebensinhalten“ auseinanderzusetzen. Dir werden Dinge offenbart, an Sie sich  vorher nicht erinnern konntest,  🔴 weil Sie neuen Mut haben, das Erlebte zu verarbeiten. Es ist ein bewusster Prozess, der Sie im angenehmsten Tempo durch Ihre Geschichte bewegt.
 
 
 Es muss jedoch anerkannt werden dass es einen Grund gibt, warum Sie diesen unangenehmen Erinnerungen und Ereignissen überhaupt nicht begegnet sind. Die Ereignisse können beängstigend sein, selbst wenn der Prozess ordnungsgemäß abläuft. Es hilft zu wissen dass es wichtig und notwendig ist, zur Beseitigung des emotionalen Stigmas führt und getan wird, damit Sie vor allem wahrgenommenen Schaden geschützt sind.
