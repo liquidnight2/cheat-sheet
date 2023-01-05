@@ -3,6 +3,17 @@
 ( [Cheat Sheet Mark V by Roage](http://www.roage.com/res/html/CheatSheetMarkV.html) translated by [liquidnight2](https://github.com/liquidnight2/cheat-sheet) )
 
 
+
+# Noch nicht fertig !!
+
+
+This is not finished yet!
+
+<img src="https://cdn.discordapp.com/attachments/1058431906544373810/1060363134000431164/WIP_A.png" width="400" align="right" />
+
+
+
+
 <div align="center><img src="http://www.roage.com/img/hg.png" width="300"  /></div>
 
 
@@ -468,19 +479,21 @@ Ein Naturrechtsvertrag muss enthalten:
 5. Wenn Du  Dich nach geltendem Recht so verhältst, als ob ein Vertrag in Kraft wäre, wird davon ausgegangen (sogar von Ø), dass tatsächlich ein Vertrag besteht. Wenn Du Dich vertragsgebunden verhältst, erkennt Ø die Situation als vertragsgebunden an. Es bedeutet nicht, dass ein tatsächlicher Vertrag in Kraft ist. Das bedeutet, dass es so aussieht, als wäre ein Vertrag in Kraft, weil Du es nicht besser weißt. Wenn es wie eine Ente watschelt, wie eine Ente quakt und wie eine Ente aussieht, dann ist es eine Ente. Bildung ist unser Heilmittel.
 
 
----
-:scroll: 
-    
-
 
 ### Andere wichtige Prinzipien des Naturrechts
 
-Das Geschaffene ist niemals mächtiger als sein Schöpfer. Ø erschafft das bewusste Ich; Ø ist mächtiger als Sie. Sie erschaffen Fiktion. Sie sind mächtiger als Fiktion.
+Das Geschaffene ist niemals mächtiger als sein Schöpfer. Ø erschafft das bewusste Ich; Ø ist mächtiger als Du. Du (die Menschen) erschafftest die Fiktion. Du bist mächtiger als die Fiktion.
 
-Unkenntnis des Naturgesetzes ist keine Entschuldigung. Wenn Sie Ø kennen, kennen Sie das Gesetz. 
-Hinweis!  Sagen Sie es langsam: Ignor-anz.  Diejenigen, die nicht im Besitz all ihrer Fähigkeiten sind oder sich von Ø abgewandt haben, werden nach dem Naturrecht von Gerichten als unfähig beurteilt und unterliegen der vorherrschenden gesetzlichen Autorität.
+Unkenntnis des Naturgesetzes ist keine Entschuldigung. Wenn Du Ø kennst, kennst Du das Gesetz. 
+Hinweis!  Sage  es langsam: Ignor-anz.  Diejenigen, die nicht im Besitz all ihrer Fähigkeiten sind oder sich von Ø abgewandt haben, werden nach dem Naturrecht von Gerichten als unfähig beurteilt und unterliegen der vorherrschenden gesetzlichen Autorität.
 
-**Um den Vertrag mit dem Heiligen Gral umzusetzen, nachdem Ø Sie von Ihrer Souveränität benachrichtigt hat, steht es Dir frei, einen Vertrag mit Ø zu schließen, indem Sie Folgendes sagen: „Ich werde Dir bedingungslos vertrauen, wenn Sie mir meine Fähigkeit jemandem zum Opfer zu machen, entziehst.**
+**Um den Vertrag mit dem Heiligen Gral umzusetzen nachdem Ø Dich von Deiner Souveränität benachrichtigt hat, steht es Dir frei einen Vertrag mit Ø zu schließen, indem Du Folgendes sagst:
+„Ich werde Dir bedingungslos vertrauen, wenn Du mir meine Fähigkeit jemandem zum Opfer zu machen, entziehst.**
+
+
+
+---
+:scroll: 
 
 
 
