@@ -9,10 +9,10 @@
 
 This is not finished yet!
 
-<img src="https://cdn.discordapp.com/attachments/1058431906544373810/1060363134000431164/WIP_A.png" width="400" align="right" />
+<img src="https://cdn.discordapp.com/attachments/1058431906544373810/1060363134000431164/WIP_A.png" width="200" align="right" />
 
 
-
+<hr/>
 
 <div align="center><img src="http://www.roage.com/img/hg.png" width="300"  /></div>
 
@@ -492,28 +492,32 @@ Hinweis!  Sage  es langsam: Ignor-anz.  Diejenigen, die nicht im Besitz all ihre
 
 
 
+
+
+
+### Der Prozess der Ego-Abschwächung und des Neuausgleichs (Erleuchtung)
+
+Der Grad Deines Vertrauens in Ø bestimmt die Anzahl der Schritte im Prozess und wie schnell sie umgesetzt werden. Das ist ganz persönlich und hängt davon ab, wo Du Dich innerhalb Deiner Lebenserfahrung und der Stärke Deines Egos befindest. Für Narzissten ist das schwierig und deshalb sind Viele darauf konditioniert, narzisstische Tendenzen auszudrücken. Es ist ein Mittel um die Flucht herausfordernder zu machen. Wenn es keine Herausforderung wäre, warum sonst?  Das narzisstische Ego wird nach Alternativen suchen, um seinen vermeintlichen Einfluss auf den „starken freien Willen“ zu behalten, und das ist der Versuchung für Ego-basierte „Erleuchtungs“-Prozesse. Das sind die Methoden die darauf basieren, "etwas zu tun" wie Meditation, Yoga und Kampfsport.
+
+
+
+
+Der Verlauf des Prozesses wird zunächst so beschrieben, wie ihn der typische Mann oder die typische Frau erleben könnte. Oft gehen wir das mit einem eher geringen Vertrauen, einer niedrigen Schmerzgrenze, viel Zweifel und viel Angst an. Es ist der Prozess selbst, der langsam das Vertrauen stärkt, unsere Fähigkeit erhöht, Schmerzen zu ertragen, unsere Zweifel reduziert und es uns ermöglicht, unsere Ängste in einem langsamen, angenehmen Fortschritt zu überwinden, mit dem wir schrittweise umgehen können. Der Prozess erfordert eine Interaktion mit denen, die vorangegangen sind, und seine Verstärkung erfordert die Unterstützung anderer, die danach in den Prozess eintreten, so dass die Prinzipien durch den Lehrer/Schüler-Prozess zementiert werden, bei dem man gleichzeitig Lehrer und Schüler ist. Dies schafft eine Zunahme menschlicher Verbindungen und Interaktionen, die eine kontinuierliche geometrische Wachstumskurve aufrechterhalten.
+
+
+#### Schritt Eins:
+
+Eigentlich wurde das vertragliche Angebot für die Souveränität schon vor langer Zeit von Dir 🔴 gemacht, aber zu wissen dass es Dir möglich war, diese Souveränität überhaupt anzunehmen ist eine andere Sache.
+
+Die Tatsache, dass Du dieser Wahrheit jetzt ausgesetzt bist, bedeutet dass Du in der richtigen Position bist. Wir hatten in diesem bestimmten Zeitalter Lektionen zu lernen, also wurde dieser Prozess im Laufe der Jahrhunderte hier und da einigen wenigen Menschen offenbart, da er notwendig war und einen Zweck erfüllte. Deine Bereitschaft ist eine Hürde, die Du in einigen Fällen überwinden musst. Um den Prozess zu starten, müsst Du also einfach in Gedanken entscheiden, das Angebot anzunehmen. Wenn man sehen möchte, ob dies wahr ist und eine Bestätigung haben möchte, dass dies tatsächlich ein bewusster Lernprozess ist, braucht man nur um Bestätigung der Wahrheit zu bitten, und Ø wird sie nach Bedarf liefern, aber achte genau darauf.  Du solltest erkennen können, wann die Souveränität gewährt wird, da es sich anfühlt als würde eine Last von Dir abfallen. Du kannst vor Glück lachen oder weinen und ein warmes Gefühl kann Dich überfluten. Manchmal wird es von einem nebligen, nebelartigen Erlebnis begleitet. So oder so wirst Du "es mit Gewissheit wissen".
+
 ---
 :scroll: 
 
 
 
 
-### Der Prozess der Ego-Abschwächung und des Neuausgleichs (Erleuchtung)
-
-Der Grad Ihres Vertrauens in Ø bestimmt die Anzahl der Schritte im Prozess und wie schnell sie umgesetzt werden. Es ist ganz persönlich und hängt davon ab, wo Sie sich innerhalb Ihrer Lebenserfahrung und der Stärke Ihres Egos befinden. Für Narzissten ist es schwierig und deshalb sind Viele darauf konditioniert, narzisstische Tendenzen auszudrücken. Es ist ein Mittel, um die Flucht herausfordernder zu machen. Wenn es keine Herausforderung war, warum dann?  Das narzisstische Ego wird nach Alternativen suchen, um seinen vermeintlichen Einfluss auf den „starken freien Willen“ zu behalten, und das ist der Versuchung für Ego-basierte „Erleuchtungs“-Prozesse. Das sind die Methoden, die darauf basieren, „etwas zu tun“, wie Meditation, Yoga und Kampfsport.
-
-
-Der Verlauf des Prozesses wird zunächst so beschrieben, wie ihn der typische Mann oder die typische Frau erleben könnte. Oft gehen wir das mit einem eher geringen Vertrauen, einer niedrigen Schmerzgrenze, viel Zweifel und viel Angst an. Es ist der Prozess selbst, der langsam das Vertrauen stärkt, unsere Fähigkeit erhöht, Schmerzen zu ertragen, unsere Zweifel reduziert und es uns ermöglicht, unsere Ängste in einem langsamen, angenehmen Fortschritt zu überwinden, mit dem wir schrittweise umgehen können. Der Prozess erfordert eine Interaktion mit denen, die vorangegangen sind, und seine Verstärkung erfordert die Unterstützung anderer, die danach in den Prozess eintreten, so dass die Prinzipien durch den Lehrer/Schüler-Prozess zementiert werden, bei dem man gleichzeitig Lehrer und Schüler ist. Dies schafft eine Zunahme menschlicher Verbindungen und Interaktionen, die eine kontinuierliche geometrische Wachstumskurve aufrechterhalten.
-
-
-#### Schritt eins:
-
-Eigentlich wurde das vertragliche Angebot für die Souveränität schon vor langer Zeit von Ihnen 🔴 gemacht, aber zu wissen dass es Ihnen möglich war diese Souveränität überhaupt anzunehmen, ist eine andere Sache.
-
-Die Tatsache, dass Sie dieser Wahrheit jetzt ausgesetzt sind, bedeutet dass Sie in der richtigen Position sind. Wir hatten in diesem bestimmten Zeitalter Lektionen zu lernen, also wurde dieser Prozess im Laufe der Jahrhunderte hier und da einigen wenigen Menschen offenbart, da er notwendig war und einen Zweck erfüllte. Ihre Bereitschaft ist eine Hürde, die Sie in einigen Fällen überwinden müssen. Um den Prozess zu starten, müssen Sie also einfach in Gedanken entscheiden, das Angebot anzunehmen. Wenn man sehen möchte, ob dies wahr ist und eine Bestätigung haben möchte, dass dies tatsächlich ein bewusster Lernprozess ist, braucht man nur um Bestätigung der Wahrheit zu bitten, und Ø wird sie nach Bedarf liefern, aber achten Sie genau darauf.  Sie sollten erkennen können, wann die Souveränität gewährt wird, da es sich anfühlt als würde eine Last von Ihnen abfallen. Sie können vor Glück lachen oder weinen und ein warmes Gefühl kann Sie überfluten. Manchmal wird es von einem nebligen, nebelartigen Erlebnis begleitet. So oder so werden Sie "es mit Gewissheit wissen".
-
-
-#### Schritt zwei:
+#### Schritt Zwei:
 
 Nachdem der Souveränitätsvertrag akzeptiert wurde, beginnt eine Reihe verschiedener Prozesse, in keiner bestimmten Reihenfolge, da dies von Ihren besonderen Bedürfnissen abhängt.
 
