@@ -532,12 +532,6 @@ Es muss jedoch anerkannt werden dass es einen Grund gibt, warum Du diesen unange
 Der Vertrag ist ein "Medium des  Wandels". Sobald Du den Prozess durchlaufen hast, wirst Du wissen, was wirklich passiert ist. Du hast Dir erlaubt aufzuwachen und verantwortlich zu sein. Der Vertrag ist eine fassbare Hilfe oder ein Mechanismus, der Dir dabei hilft. Du hast hohe Ansprüche, und Du wirst es   🔴  nicht zulassen bis Du weißt, dass Du bereit bist. Das Naturgesetz wird dann ein inhärenter Aspekt Deiner Erfahrung sein, da alle verantwortlichen Menschen das Gesetz kennen.
 
 
----
-:scroll: 
-
-
-
-
 ### Dies kann Dir helfen zu erkennen was Du getan hast:
 
 Du bist ein ein einzigartiges grenzenloses Wesen von immenser Macht.
@@ -577,7 +571,7 @@ Wenn Du den Vertrag annimmst, kannst Du nicht vollständig im Käfig bleiben, we
 Der Vertrag besteht auf Dauer. Denn wenn "Du" nicht „bedingungslos vertraust“, würdest Du jemanden zum Opfer machen, da "Du" gegen den Vertrag verstoßen würdest. Und das ist ausdrücklich verboten, wenn "Du“ den Vertrag von vornherein annimmst.
 
 
-<p align="center> Hat das geholfen? </p>
+<p align="center"> Hat das geholfen? </p>
 
 
 
