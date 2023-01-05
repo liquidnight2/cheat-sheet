@@ -7,12 +7,12 @@
 # Noch nicht fertig !!
 
 
-This is not finished yet!
+<p>
+	This is not finished yet!
+	<img src="https://cdn.discordapp.com/attachments/1058431906544373810/1060363134000431164/WIP_A.png" width="200" align="right" />
+</p>
 
-<img src="https://cdn.discordapp.com/attachments/1058431906544373810/1060363134000431164/WIP_A.png" width="200" align="right" />
-
-
-<hr/>
+<hr break="all"/>
 
 <div align="center><img src="http://www.roage.com/img/hg.png" width="300"  /></div>
 
@@ -491,15 +491,9 @@ Hinweis!  Sage  es langsam: Ignor-anz.  Diejenigen, die nicht im Besitz all ihre
 „Ich werde Dir bedingungslos vertrauen, wenn Du mir meine Fähigkeit jemandem zum Opfer zu machen, entziehst.**
 
 
-
-
-
-
 ### Der Prozess der Ego-Abschwächung und des Neuausgleichs (Erleuchtung)
 
 Der Grad Deines Vertrauens in Ø bestimmt die Anzahl der Schritte im Prozess und wie schnell sie umgesetzt werden. Das ist ganz persönlich und hängt davon ab, wo Du Dich innerhalb Deiner Lebenserfahrung und der Stärke Deines Egos befindest. Für Narzissten ist das schwierig und deshalb sind Viele darauf konditioniert, narzisstische Tendenzen auszudrücken. Es ist ein Mittel um die Flucht herausfordernder zu machen. Wenn es keine Herausforderung wäre, warum sonst?  Das narzisstische Ego wird nach Alternativen suchen, um seinen vermeintlichen Einfluss auf den „starken freien Willen“ zu behalten, und das ist der Versuchung für Ego-basierte „Erleuchtungs“-Prozesse. Das sind die Methoden die darauf basieren, "etwas zu tun" wie Meditation, Yoga und Kampfsport.
-
-
 
 
 Der Verlauf des Prozesses wird zunächst so beschrieben, wie ihn der typische Mann oder die typische Frau erleben könnte. Oft gehen wir das mit einem eher geringen Vertrauen, einer niedrigen Schmerzgrenze, viel Zweifel und viel Angst an. Es ist der Prozess selbst, der langsam das Vertrauen stärkt, unsere Fähigkeit erhöht, Schmerzen zu ertragen, unsere Zweifel reduziert und es uns ermöglicht, unsere Ängste in einem langsamen, angenehmen Fortschritt zu überwinden, mit dem wir schrittweise umgehen können. Der Prozess erfordert eine Interaktion mit denen, die vorangegangen sind, und seine Verstärkung erfordert die Unterstützung anderer, die danach in den Prozess eintreten, so dass die Prinzipien durch den Lehrer/Schüler-Prozess zementiert werden, bei dem man gleichzeitig Lehrer und Schüler ist. Dies schafft eine Zunahme menschlicher Verbindungen und Interaktionen, die eine kontinuierliche geometrische Wachstumskurve aufrechterhalten.
@@ -511,22 +505,21 @@ Eigentlich wurde das vertragliche Angebot für die Souveränität schon vor lang
 
 Die Tatsache, dass Du dieser Wahrheit jetzt ausgesetzt bist, bedeutet dass Du in der richtigen Position bist. Wir hatten in diesem bestimmten Zeitalter Lektionen zu lernen, also wurde dieser Prozess im Laufe der Jahrhunderte hier und da einigen wenigen Menschen offenbart, da er notwendig war und einen Zweck erfüllte. Deine Bereitschaft ist eine Hürde, die Du in einigen Fällen überwinden musst. Um den Prozess zu starten, müsst Du also einfach in Gedanken entscheiden, das Angebot anzunehmen. Wenn man sehen möchte, ob dies wahr ist und eine Bestätigung haben möchte, dass dies tatsächlich ein bewusster Lernprozess ist, braucht man nur um Bestätigung der Wahrheit zu bitten, und Ø wird sie nach Bedarf liefern, aber achte genau darauf.  Du solltest erkennen können, wann die Souveränität gewährt wird, da es sich anfühlt als würde eine Last von Dir abfallen. Du kannst vor Glück lachen oder weinen und ein warmes Gefühl kann Dich überfluten. Manchmal wird es von einem nebligen, nebelartigen Erlebnis begleitet. So oder so wirst Du "es mit Gewissheit wissen".
 
----
-:scroll: 
-
-
 
 
 #### Schritt Zwei:
 
-Nachdem der Souveränitätsvertrag akzeptiert wurde, beginnt eine Reihe verschiedener Prozesse, in keiner bestimmten Reihenfolge, da dies von Ihren besonderen Bedürfnissen abhängt.
+Nachdem der Souveränitätsvertrag akzeptiert wurde, beginnt eine Reihe verschiedener Prozesse, in keiner bestimmten Reihenfolge, da dies von Deinen besonderen Bedürfnissen abhängt.
 
-Viele haben Schwierigkeiten, etwas zu vertrauen, das sie nicht sehen können, also wird es notwendig, eine Reihe von Lebenserfahrungen zu schaffen, die Ihnen zeigen, dass hinter den Kulissen tatsächlich etwas Intelligentes arbeitet. Diese können sich als seltsame Zufälle, lebhafte Träume mit klaren Botschaften und Ereignisse in Ihrem täglichen Leben manifestieren, die so unwahrscheinlich sind, dass Sie sie bemerken (Synchronizitäten). Diese könnten zum Beispiel durch das Sehen von Zahlenfolgen wie 1111 ausgedrückt werden. Die Bildsprache wird in der für Sie persönlich sinnvollen Form vorliegen.
-
-
+Viele haben Schwierigkeiten, etwas zu vertrauen das sie nicht sehen können, also wird es notwendig eine Reihe von Lebenserfahrungen zu schaffen die Dir zeigen, dass hinter den Kulissen tatsächlich etwas Intelligentes arbeitet. Diese können sich als seltsame Zufälle, lebhafte Träume mit klaren Botschaften und Ereignisse in Deinem täglichen Leben manifestieren, die so unwahrscheinlich sind dass Sie sie bemerken (Synchronizitäten). Diese könnten zum Beispiel durch das Sehen von Zahlenfolgen wie 1111 ausgedrückt werden. Die Bildsprache wird in der für Sie persönlich sinnvollen Form vorliegen.
 
 
-Wenn der Souveränitätsvertrag akzeptiert wird, erleben Sie oft einen Strom vergangener Erinnerungen und Bilder von Ereignissen, die sich in Ihrer Vergangenheit ereignet haben. Wenn Sie nicht aufpassen, werden diese Bilder immer wieder abgespielt, bis Sie aufpassen und das Ereignis als wertvoll für Sie akzeptieren. Dies kann Sie die ganze Nacht wach halten, während Sie nicht wissen was passiert.
+Wenn der Souveränitätsvertrag akzeptiert wird, erlebst Du oft einen Strom vergangener Erinnerungen und Bilder von Ereignissen, die sich in Deine Vergangenheit ereignet haben. Wenn Du nicht aufpasst, werden diese Bilder immer wieder abgespielt, bis Du aufpasst und das Ereignis als wertvoll für Dich akzeptierst. Dies kann Dich die ganze Nacht wach halten, während Du nicht weißt was passiert.
+
+
+---
+:scroll: 
+
 
 
 Der Schlüssel liegt darin, zu erkennen, warum das Bild, Konzept oder Ereignis wichtig ist -  Was ist der Zweck dessen was passiert, oder warum wird es Ihnen gezeigt? Es gibt immer für alles einen Grund. Sie müssen es herausfinden. Wenn Sie nicht weiterkommen, müssen Sie um weitere Klärung bitten, und dann wird es wahrscheinlich in Träumen oder im wirklichen Leben durch reale Erfahrungen demonstriert. Hier werden Interaktionen wichtig, da Sie Ihr Ereignis mit jemandem teilen können der es objektiv betrachten kann, ohne das Ereignis mit einer persönlichen Voreingenommenheit zu verdrehen.
