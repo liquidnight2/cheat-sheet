@@ -44,9 +44,9 @@ Wenn ich "Torg" schreibe oder sage, ein Wort, von dem Du weder die Definition no
 
 ### Hindernis 2
 
-Abstrakte Begriffe wie Emotionen können nicht anhand eines physischen Beispiels vermittelt werden. Wörter wie „Liebe“, „Feier“ und „Sorge“ bedeuten für verschiedene Menschen unterschiedliche Dinge, je nachdem, wie sie diese Konzepte in ihrer persönlichen Erfahrung erlebt haben. Wenn ich die Worte „Die Feiertage“ verwende und erwarte, dass jeder weiß, dass ich mich auf „Hanukka und Neujahr“ beziehe, dann ist „Die Feiertage“ nicht nützlich, um die beabsichtigte Bedeutung zu vermitteln. Da wir alle unterschiedliche Erfahrungen mit allen Wörtern machen, führen die Wörter selbst oft zu Missverständnissen, weil die Einzigartigkeit unserer Erfahrung dazu führt, dass wir für jeden von uns etwas unterschiedliche Bedeutungen haben. Ich kann nicht davon ausgehen, dass „May Day“ für den Leser oder Zuhörer an sich etwas Positives bedeutet.
+Abstrakte Begriffe wie Emotionen können nicht anhand eines physischen Beispiels vermittelt werden. Wörter wie „Liebe“, „Feier“ und „Sorge“ bedeuten für verschiedene Menschen unterschiedliche Dinge, je nachdem, wie Du diese Konzepte in ihrer persönlichen Erfahrung erlebt hast. Wenn ich die Worte „Die Feiertage“ verwende und erwarte, dass jeder weiß, dass ich mich auf „Hanukka und Neujahr“ beziehe, dann ist „Die Feiertage“ nicht nützlich, um die beabsichtigte Bedeutung zu vermitteln. Da wir alle unterschiedliche Erfahrungen mit allen Wörtern machen, führen die Wörter selbst oft zu Missverständnissen, weil die Einzigartigkeit unserer Erfahrung dazu führt, dass wir für jeden von uns etwas unterschiedliche Bedeutungen haben. Ich kann nicht davon ausgehen, dass „May Day“ für den Leser oder Zuhörer an sich etwas Positives bedeutet.
 
-Hier ist die Herausforderung: Die Leute haben nicht nur wenig oder gar kein Wissen über das, was vermittelt wird, sondern es ist nicht greifbar, noch gibt es einfache Worte, die es den Leuten ermöglichen, sich auf ihre bereits bestehenden Erfahrungen zu beziehen. Das bedeutet, dass man sich hier der Beschränkung des Sprachgebrauchs bewusst sein und sich bemühen muss, die Bedeutung hinter den Wörtern zu erfassen, da sie höchstens auf die wahre Bedeutung hinweisen können. Helfen Sie also bitte dabei und lassen Sie sich nicht von dem Gesagten ablenken und konzentrieren Sie sich darauf, was die Worte in Dir hervorrufen. Wenn die Worte zu negativen Gefühlen führen, wurden die Worte nicht aufgenommen oder waren zu begrenzt, um leicht zu vermitteln was gemeint war. Bitte verwende  dies als Leitfaden, denn unter negativen Gefühlen erfasst man nicht die richtige Bedeutung. Es wird mehr Aufmerksamkeit und Selbstreflexion erfordern um zu bemerken, wann dies eintritt. Es wird vorgeschlagen 🔴 , dass man einfach das negative Gefühl vorübergehen lässt und fortfährt oder versucht, die Worte durchzugehen bis das beabsichtigte positive Ergebnis wahrgenommen wird.
+Hier ist die Herausforderung: Die Leute haben nicht nur wenig oder gar kein Wissen über das, was vermittelt wird, sondern es ist nicht greifbar, noch gibt es einfache Worte, die es den Leuten ermöglichen, sich auf ihre bereits bestehenden Erfahrungen zu beziehen. Das bedeutet, dass man sich hier der Beschränkung des Sprachgebrauchs bewusst sein und sich bemühen muss, die Bedeutung hinter den Wörtern zu erfassen, da sie höchstens auf die wahre Bedeutung hinweisen können. Helfe also bitte dabei und lasse Dich nicht von dem Gesagten ablenken und konzentriere Dich darauf, was die Worte in Dir hervorrufen. Wenn die Worte zu negativen Gefühlen führen, wurden die Worte nicht aufgenommen oder waren zu begrenzt, um leicht zu vermitteln was gemeint war. Bitte verwende  dies als Leitfaden, denn unter negativen Gefühlen erfasst man nicht die richtige Bedeutung. Es wird mehr Aufmerksamkeit und Selbstreflexion erfordern um zu bemerken, wann dies eintritt. Es wird vorgeschlagen 🔴 , dass man einfach das negative Gefühl vorübergehen lässt und fortfährt oder versucht, die Worte durchzugehen bis das beabsichtigte positive Ergebnis wahrgenommen wird.
 
 Der Spickzettel Mark V versucht, die Bedeutung einer Zusammenfassung zu vermitteln mit dem Viele keine nützliche Erfahrung haben, da wir noch nicht die Fähigkeiten haben, es zu schätzen. Bei den Versuchen Hilfsmittel zu entdecken kann man direktes persönliches Wissen gewinnen.
 
@@ -65,7 +65,7 @@ Ich war ungefähr zwölf Jahre alt als ich beschloss, dass die Welt ein Käfig v
 
 Als ich anfing, bekam ich die richtigen Werkzeuge für die Aufgabe. Bis zum Äußersten war ich narzisstisch, unsympathisch, bösartig, amoralisch, unehrlich, intelligent, neugierig, detailorientiert, aufmerksam, systematisch und skeptisch. Ich hatte keinen Respekt vor Autorität und zum Glück hatte ich einen gesunden Sinn für Humor und Junge, habe ich das jemals gebraucht! Im Grunde war ich ein Soziopath.
 
-Nach einer intensiven Ausbildung in Wissenschaft und später in Religion und etwas Philosophie kam ich zu dem Schluss, dass diese Institutionen, wenn sie den Ausweg kennen, entweder nichts sagen oder verwirrt sind. So oder so, ich wäre nicht dort wo ich war, wenn es tatsächlich funktionieren würde.
+Nach einer intensiven Ausbildung in Wissenschaft und später in Religion und etwas Philosophie kam ich zu dem Schluss, dass diese Institutionen wenn sie den Ausweg kennen, entweder nichts sagen oder verwirrt sind. So oder so, ich wäre nicht dort wo ich war, wenn es tatsächlich funktionieren würde.
 
 Ich hielt alles, was mir gesagt wurde, entweder für eine absichtliche Lüge oder für verdächtig. Ich kam zu dem Schluss, dass ich nur glauben würde, was ich mir selbst zeigen und beweisen konnte. Anfangs wusste ich wenig und es zeigte sich. Ich passte nicht hinein und hatte keine Geduld für Menschen. Für mich waren sie Objekte, einfach  Dinge ( 🔴 ?)  meiner Experimente. Ich lehnte die Standardmodell-Kosmologie ab und sah Schummel-Faktoren in der Physik als Produkt intellektueller Faulheit an. Ich habe meine eigenen Grundannahmen zurückgewiesen. Ironie und Zufall empfand ich jedoch als lehrreich und etwas, das man genau beobachten sollte.
 
@@ -74,8 +74,6 @@ Jedes Mal wenn ich auf eine Barriere traf, fing ich von vorne an. Nur das akzept
 Bei diesem "Ereignis" erlebte ich zum ersten Mal: ​​keine Sorge, keine Angst. Ich genoss Frieden, Liebe und vor allem: Klarheit. Nachdem ich das Naturgesetz gelernt hatte, entdeckte ich, dass das Universum ein freundlicher Ort ist. Ich erlangte eine neue Fähigkeit, die es mir ermöglichte, Dinge auf eine neue Weise wahrzunehmen, die meine fünf Sinne nicht erforderte. Ich lernte wahrzunehmen, dass die Natur eine Intelligenz und ein Timing hat. Die Natur ist das, was alle Macht im Universum manifestiert, und es ist wichtig zu wissen wie sie funktioniert, oder man kann nicht wissen warum Dinge passieren. Diese Unkenntnis des Naturgesetzes ist der Grund, warum wir Ereignisse in unserem Leben oft dem Zufall, Glück, Wahrscheinlichkeit und Chaos zuschreiben.
 
 Wenn man das Naturgesetz in dem Maße studiert, wie ich es getan habe, dann war es automatisch, dass ich der Quelle der Grenzen und der Architektur begegnete, die ich in diesem Ding erlebte, das ich mein Leben nannte. Dieses „Ereignis“ war so tiefgreifend, dass es mich für immer veränderte und mich frei und glücklich machte. Noch wichtiger ist, dass ich meine Verbindung zur Natur gefunden habe, wer ich war und was noch wichtiger ist, meine Bestimmung.
-
-
 
 Es erforderte eine Suche nicht außen, sondern innen. Wie könnte ich glücklich werden, wenn ich die Wahrheit, dass ich nicht glücklich bin, nicht akzeptiere? Es war, als ich aufhörte, mich selbst zu täuschen. Ich war so aufgeregt, dass ich anfing, den Leuten zu erzählen, wie ich zu diesem Punkt gekommen war. Wenn sie vorher dachten, ich wäre verrückt, dann waren sie sich jetzt sicher. Ich konnte es den Leuten nicht einfach sagen. Es dauerte Jahre des Studiums, um herauszufinden, warum.
 
@@ -98,17 +96,13 @@ Wenn Du Dich verloren, verwirrt oder verrückt fühlst, dann bist Du genau dort,
 
 Dies ist die fünfte Iteration des Cheat Sheets. Es wurde über 12 Jahre entwickelt, wobei lebenslange Beobachtungen und Überarbeitungen einbezogen wurden, um es für Dich nützlich zu machen. Es wurde als der schnelle Weg zur Erleuchtung beschrieben. Es ist nicht so, dass es schwierig ist, aber das Hauptproblem ist, dass es einfach ist und wir eine Menge Kontext brauchen, um es durchzustehen. Stelle  Dir vor, Du springst von einer Klippe. Alles was erforderlich ist, ist sich einfach zu entspannen und nach vorne zu fallen, aber die Angst zu bewältigen ist die Hürde.
 
-Es wird von Dir verlangen,  dass Du alles was Du über das Leben zu wissen glaubst, beiseite legst und wirklich offen bist. Diejenigen, die diese Methodik wirklich ausprobiert und angewendet haben, wurden vollständig verändert. Sie  können den Unterschied nicht beschreiben, aber sie wollen nicht wieder so werden, wie sie waren. Hier sind einige Dinge, über die Du wirklich nachdenken solltest, bevor Du beginnst, also sei ehrlich zu Dir selbst und nimm Dir etwas Zeit:
+Es wird von Dir verlangen,  dass Du alles was Du über das Leben zu wissen glaubst, beiseite legst und wirklich offen bist. Diejenigen, die diese Methodik wirklich ausprobiert und angewendet haben, wurden vollständig verändert. Du kannst den Unterschied nicht beschreiben, aber Du willst nicht wieder so werden, wie Du warst. Hier sind einige Dinge, über die Du wirklich nachdenken solltest, bevor Du beginnst, also sei ehrlich zu Dir selbst und nimm Dir etwas Zeit:
 
 Bist Du glücklich? Möchteest Du lieber Recht haben als glücklich sein? Wenn Du es für Dich ändern könntest, würdest Du es ändern?  Was ist, wenn es nicht darum geht, dass Deine Logik falsch ist, sondern Ihre Schlussfolgerungen darauf beruhen, dass Du nicht vollständig beobachten konntest, was Dir in Deinem Leben widerfahren ist?
-
 
 #### Das Leben enthält keine Lektion. Das Leben ist die Lektion.
 
 Selbst wenn Du es jetzt nicht glaubst, tue  einfach so als würdest Du Dein Leben als eine interaktive Lektion betrachten, die Dich zu diesem Zeitpunkt genau jetzt brachte. Bald wirst Du dabei sein, Dir nichts mehr vorzutäuschen.
-
-
-
 
 
 ## Ein neues Symbol: Ø
@@ -118,8 +112,6 @@ Ich werde "On" (oder ahn) sprechen, um den Kreis mit einem vertikalen Schrägstr
 Ø ist die mengentheoretische Darstellung einer „leeren Menge“ oder „Nullmenge“ und wird manchmal mit leeren geschweiften Klammern {} dargestellt. In der Gesamtheit des menschlichen Denkens und der Sprache existiert kein einziger Begriff, um die „Nicht-Wesenheit“ richtig darzustellen, die von Natur aus das Höchste und Autorität im Universum und außerhalb des Universums ist. Das Symbol Ø ist kein Abbild dieser Nicht-Entität. Dieses Symbol ist ein Platzhalter für das, was keinen Platzhalter hat. Das Symbol beschreibt all das, was das „Nichts“ nicht ist.
 
 Bestimmte Begriffe neigen dazu, für viele Menschen eine automatische Verständnisblockade zu schaffen. Menschen verlieren sich oft in einem Streit über Religion oder Semantik. Dies ist ein Grund für die Verwendung eines umgekehrten Symbols. Darüber hinaus ist es eine Tatsache, dass Ø weitgehend missverstanden und ignorant für eine Menge menschliches Leid, Frustration und Verdorbenheit verantwortlich gemacht wird. Es ist erforderlich da Du lebst, und Du benötigst etwas an dem Du Dich festhalten kanst, da "nichts“ schwer fassbar ist. Man könnte es auch als „Schwarzes Ganzes“ betrachten. Ø ist die Wahrheit, die Du suchst.
-
-
 
 
 ### Ein Überblick über den Prozess der Erreichung des Heiligen Grals
@@ -171,7 +163,7 @@ Die Liste scheint viel zu sein, aber es ist alles in Dir und es wird durch das e
 
 Mein bester Rat ist, sich zu entspannen. Du bist bereits dabei. Eigentlich warst Du  schon immer dabei. Dies ist das Erste, was Du  vielleicht als unmittelbare Lebenslektion ansehen solltest. Es ist nur ein „Gefühl“, dass es andere gibt die etwas wissen, was Du nicht weißt. All das weißt Du bereits. Bis jetzt war es einfach nicht nötig, in Deinem Bewusstsein zu sein. Es wird eine nuancierte Herangehensweise erfordern, damit Du Dir  erlaubst zu „sehen“. Es hilft nicht, zu versuchen, nach Ø zu „suchen“ oder „Ausschau zu halten“. Ø ist bereits hier. Man kann nicht sehen, was nicht gesehen werden kann.
 
-Ich werde einen anderen Ansatz versuchen und vielleicht kannst Du sehen, worauf ich hinaus will. Ich zeige auf den Mond, aber lassen Sie  sich  nicht vom Finger ablenken.
+Ich werde einen anderen Ansatz versuchen und vielleicht kannst Du sehen, worauf ich hinaus will. Ich zeige auf den Mond, aber lassen Dich  nicht vom Finger ablenken.
 
 Es ist, als hätte man ein Wort „auf der Zunge“. Je mehr Du versuchst, Dich zu erinnern, desto mehr blockierst Du Deinen Prozess und desto mehr entzieht er sich Dir. Wenn Du dann um 3:00 Uhr morgens entspannt bist, kommt es automatisch zu Dir. Dies liegt daran, dass der   🔴 ???    „Speicher-Server“-Rückstand gelöscht werden durfte.   
 
@@ -187,26 +179,17 @@ Weil diese Dinge, über die hier gesprochen wird, so nuanciert sind, dass Du nic
     
 #### 2. Achte auf das, was Du erlebst und nimm es ernst. Nichts ist unwichtig. Ø lässt am Anfang etwas locker und lehrt nicht zwei Dinge gleichzeitig. Obwohl meine Lektionen komplex sind, sind sie eine nach der anderen. Ja, ich bin auch dabei, und ich mache das ewig so wie Du. Was Du gerade erlebst - ist die Lektion.  
 
-
-    
 #### 3. Akzeptiere dass das was Du jetzt erlebst, für die Lektion notwendig ist. Die Wahrheit gilt nur für Dich und nur jetzt. Mache Dich  sich mit der Tatsache vertraut, dass die Wahrheit "nicht übertragbar" 🔴 ???  ist. Was jetzt die Wahrheit 🔴 (Wahrnehmung, perception)  ist, kann sich im nächsten Moment ändern. Akzeptiere, was Dir gezeigt wird und sei intuitiv ehrlich. Je mehr Du akzeptierst desto größer ist Dein Vertrauen, desto schneller wirst Du  bekommen, was Dir beigebracht wird.  
 
         
 #### 4. Achte auf die Schleifen und die Redundanz. Du wirst dieselbe Lektion mit verschiedenen Szenarien und verschiedenen Personen wiederholen, bis Du sie verstanden hast. Achte  bei jeder Iteration darauf "was gleich ist“, und es wird auf das Ziel hinweisen. Dann wirst Du die Lektion direkt vor Dir erblicken. Dies wird normalerweise von einem Lachen und einem "Duh" begleitet.
-
-
     
 #### 5. Am Anfang wird Dir beigebracht "wie Du belehrt wirst", und nicht was Du "anstrebst". Das kommt wenn Du den Lernprozess beendest und Deiner Erfahrung vertraust und sich damit wohler fühlst wie es funktioniert. Dann entspanne Dich und die notwendigen Lektionen vergehen immer schneller.  
     
 
 Wenn der richtige Zeitpunkt für Dich gekommen ist, wird Ø Dich 🔴 heimsuchen, weil Du einfach die Wahrnehmungsbarrieren beseitigt hast und es so aussehen wird, als ob Ø die ganze Zeit direkt vor Dir gewesen wäre.
 
-
-
-
 Wir sind hier um zu lernen, und es ist für die Vorfahren keine Überraschung dass wir hier das durchmachen, was wir durchmachen sollen. Bewusstsein (Du, ich, alle) testet Dinge durch Erfahrung. Es ist eine Sache das zu wissen, und eine ganz andere das selbst zu erleben.
-
-
 
 Wir existieren in einem Zustand reduzierter Energie, in dem das Wirt-Parasit/Herr-Sklave/Gläubiger-Schuldner-Paradigma erforscht wird. Dass Sklaverei keine "gute Idee" ist lernt man am besten, indem man erlebt wie es ist, ein Sklave zu sein. Wir erforschen auch Verwirrung und Wahnsinn und lernen, wie wir aus einem Zustand von Wahnsinn oder Verwirrung zurückkehren können. Das Folgende ist eine Nuance der Verwirrung und ihr grundlegendes Merkmal:
 
@@ -230,7 +213,7 @@ Die Entscheidung auf der Grundlage einer akuten Beobachtung zu antworten oder ni
 
 Sich der Wirkung bewusst sein, die unsere Reaktionen in Bezug auf andere haben. Indem wir sicherstellen, dass wir das Richtige tun, indem wir nicht gegen ihren Willen verstoßen, wird dies als verantwortungsbewusstes und kompetentes Verhalten angesehen.
 
-Außerdem müssen wir wissen, dass wir die Pflicht haben, uns angemessen um diejenigen um uns herum zu kümmern, die nicht verantwortlich sind. Wenn ein Kleinkind allein auf dem Seitenstreifen einer stark befahrenen Autobahn sitzt und Sie nichts tun, dann sind Sie verantwortlich, wenn es verletzt wird. Viele um uns herum sind in der Position des Kleinkindes und wir müssen dafür sorgen, dass sie vor ihrer eigenen Inkompetenz geschützt werden.
+Außerdem müssen wir wissen, dass wir die Pflicht haben, uns angemessen um diejenigen um uns herum zu kümmern, die nicht verantwortlich sind. Wenn ein Kleinkind allein auf dem Seitenstreifen einer stark befahrenen Autobahn sitzt und Du nichts tust, dann bist Du verantwortlich wenn es verletzt wird. Viele um uns herum sind in der Position des Kleinkindes und wir müssen dafür sorgen, dass sie vor ihrer eigenen Inkompetenz geschützt werden.
 
 Angenommen, wir haben einen Treuhandfonds oder eine Erbschaft, die auf uns wartet? Es kann uns nicht gegeben werden, wenn wir nicht kompetent oder verantwortlich sind den Fonds ordnungsgemäß zu verwalten. Wir müssen diese Kompetenz demonstrieren bevor wir das erhalten können, was uns gehört.
 
@@ -243,7 +226,8 @@ Verantwortlichkeit bedeutet die Konsequenzen zu akzeptieren, entweder positiv od
 Man muss dem Selbst vertrauen und dieses Vertrauen muss auf einem hohen Niveau sein, normalerweise jenseits dessen, womit wir uns wohl fühlen. Wenn wir im Moment nicht das Vertrauen haben, das für die Annahme des Vertrags erforderlich ist, wird unsere Bereitschaft den Vertrag einzugehen das hervorbringen, was ich "Vertrauensaufbauübungen" nenne. Dies sind Ereignisse in der eigenen Lebenserfahrung die einen dazu zwingen, ein höheres Vertrauen in sich selbst zu setzen, indem sie dem Ego die Fähigkeit nehmen, die Konsequenzen einer Entscheidung zu kennen die es treffen muss. Wenn man sich weigert die Wahl zu treffen, wird es zunehmend schwieriger eine Wahl zu treffen. Wenn Du  diese Übungen nicht durchmachst, wird der Vertrag nicht angenommen. Hier kann die Hilfe Anderer eine unschätzbare Hilfe sein, um die Blindheit des Egos hinter sich zu lassen. Es wird keine Antwort auf die Wahl geben, aber es kann das Vertrauen in den Prozess stärken.
 
 
-Es ist auch nützlich, eine Reihe persönlicher Zeichen festzulegen, die das Selbst verwenden kann, um den Fortschritt in einer einzelnen Lektion anzuzeigen. Wenn man die Indikatoren akzeptiert, wird das Selbst sie verwenden, um einen über seine Position in der Lektion und Hinweise zum Navigieren in der Lektion zu informieren. Dies ist ein einfacher Zahlencode und man muss die Bedeutung der Zahlen kennen. Sie kommen als Zahlenfolgen, die man in seinem Leben um sich herum sieht.
+Es ist auch nützlich, eine Reihe persönlicher Zeichen festzulegen, die das Selbst verwenden kann, um den Fortschritt in einer einzelnen Lektion anzuzeigen. Wenn man die Indikatoren akzeptiert, wird das Selbst sie verwenden, um einen über seine Position in der Lektion zu informieren  und um Hinweise   zum Navigieren in der Lektion zu geben. 
+Dies ist ein einfacher Zahlencode und man muss die Bedeutung der Zahlen kennen. Sie kommen als Zahlenfolgen, die man in seinem Leben um sich herum sieht.
 
 #### * 111,1111,101,121,131,141,1001 usw. zeigt an, dass eine zu lernende Lektion verfügbar ist.  
     
@@ -344,7 +328,7 @@ Man kann Wahnsinn nicht meistern, ohne zuerst Wahnsinn erlebt zu haben. Es ist e
 
 Verantwortungslosigkeit ist der Schlüssel zur Entrechtung. Verrückte haben keine Rechte, weil die Ausübung von Rechten Verantwortung erfordert. Die Verrückten sind inkompetent und die Gesunden haben die Verantwortung, sich um die Verrückten zu kümmern und sie zu behandeln.
 
-Gerichte und Regierungen halten uns in unserem Ausgangszustand für verrückt, ohne Verantwortungsbewusstsein und ohne Rechte, es sei denn wir können beweisen, dass wir nicht verrückt sind. Das Problem ist dass wir weiterhin glauben, dass Fiktion real sei.  Wir kennen das Naturgesetz nicht und wir wissen nicht, wie wir uns das antun. Deshalb ist die Welt zu einem Irrenhaus geworden, in dem die Geisteskranken von anderen behandelt werden, die selbst geisteskrank sind. Der letzte Versuch, unseren Wahnsinn zu heilen, wird darin bestehen, dass wir gefoltert werden, bis wir entweder aus ihm herausbrechen oder sterben. Schauen Sie sich um und willkommen in der "Modernen Zeit".
+Gerichte und Regierungen halten uns in unserem Ausgangszustand für verrückt, ohne Verantwortungsbewusstsein und ohne Rechte, es sei denn wir können beweisen, dass wir nicht verrückt sind. Das Problem ist dass wir weiterhin glauben, dass Fiktion real sei.  Wir kennen das Naturgesetz nicht und wir wissen nicht, wie wir uns das antun. Deshalb ist die Welt zu einem Irrenhaus geworden, in dem die Geisteskranken von anderen behandelt werden, die selbst geisteskrank sind. Der letzte Versuch, unseren Wahnsinn zu heilen, wird darin bestehen, dass wir gefoltert werden, bis wir entweder aus ihm herausbrechen oder sterben. Schaue Dich um und willkommen in der "Modernen Zeit".
 
 Du musst wirklich wollen, dass sich Dein Zustand ändert, bevor Du überhaupt das Naturgesetz in Bezug auf Verträge lernen kannst. Du musst bereit sein Verantwortung für Dein Leben zu übernehmen, bevor Du überhaupt das 🔴  Gesetz verlangst.    Die Verrückten sind von Natur aus gesetzlos.
 
@@ -510,12 +494,9 @@ Die Tatsache, dass Du dieser Wahrheit jetzt ausgesetzt bist, bedeutet dass Du in
 
 Nachdem der Souveränitätsvertrag akzeptiert wurde, beginnt eine Reihe verschiedener Prozesse, in keiner bestimmten Reihenfolge, da dies von Deinen besonderen Bedürfnissen abhängt.
 
-Viele haben Schwierigkeiten, etwas zu vertrauen das sie nicht sehen können, also wird es notwendig eine Reihe von Lebenserfahrungen zu schaffen die Dir zeigen, dass hinter den Kulissen tatsächlich etwas Intelligentes arbeitet. Diese können sich als seltsame Zufälle, lebhafte Träume mit klaren Botschaften und Ereignisse in Deinem täglichen Leben manifestieren, die so unwahrscheinlich sind dass Sie sie bemerken (Synchronizitäten). Diese könnten zum Beispiel durch das Sehen von Zahlenfolgen wie 1111 ausgedrückt werden. Die Bildsprache wird in der für Sie persönlich sinnvollen Form vorliegen.
-
+Viele haben Schwierigkeiten, etwas zu vertrauen das sie nicht sehen können, also wird es notwendig eine Reihe von Lebenserfahrungen zu schaffen die Dir zeigen, dass hinter den Kulissen tatsächlich etwas Intelligentes arbeitet. Diese können sich als seltsame Zufälle, lebhafte Träume mit klaren Botschaften und Ereignisse in Deinem täglichen Leben manifestieren, die so unwahrscheinlich sind dass Du sie bemerkst (Synchronizitäten). Diese könnten zum Beispiel durch das Sehen von Zahlenfolgen wie 1111 ausgedrückt werden. Die Bildsprache wird in der für Dich persönlich sinnvollen Form vorliegen.
 
 Wenn der Souveränitätsvertrag akzeptiert wird, erlebst Du oft einen Strom vergangener Erinnerungen und Bilder von Ereignissen, die sich in Deine Vergangenheit ereignet haben. Wenn Du nicht aufpasst, werden diese Bilder immer wieder abgespielt, bis Du aufpasst und das Ereignis als wertvoll für Dich akzeptierst. Dies kann Dich die ganze Nacht wach halten, während Du nicht weißt was passiert.
-
-
 
 
 Der Schlüssel liegt darin, zu erkennen, warum das Bild, Konzept oder Ereignis wichtig ist -  Was ist der Zweck dessen was passiert, oder warum wird es Dir gezeigt? Es gibt immer für alles einen Grund. Du musst es herausfinden. Wenn Du nicht weiterkommst, musst Du um weitere Klärung bitten, und dann wird es wahrscheinlich in Träumen oder im wirklichen Leben durch reale Erfahrungen demonstriert. Hier werden Interaktionen wichtig, da Du Dein Ereignis mit jemandem mitteilen kannst der es objektiv betrachten kann, ohne das Ereignis mit einer persönlichen Voreingenommenheit zu verdrehen.
