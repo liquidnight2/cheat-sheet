@@ -544,11 +544,11 @@ Du bist ein ein einzigartiges grenzenloses Wesen von immenser Macht.
 
 Du hast Dich selbst „ausgetrickst“, um „hierher“ zu gelangen, und es erfordert, dass Du die Natur des „Tricks“ erkennst und Deine Bereitschaft zum Ausdruck bringst den „Trick“ rückgängig zu machen.
 
-Das hast Du erreicht.
+Das ist es was  Du erreicht hast.
 
-Du hast einen speziell entworfenen komplizierten und komplexen Käfig geschaffen, der Grenzen und Begrenzungen festlegt und eine sehr schmale Tür nach draußen lässt die von innen getarnt ist.
+Du hattest  🔴  einen speziell entworfenen komplizierten und komplexen Käfig geschaffen, der Grenzen und Begrenzungen festlegte und eine sehr schmale Tür nach draußen lässt die von innen getarnt ist.
 
-Dein Bewusstsein trat in diesen Käfig und ließ das Meisten von Dir draußen.
+Dein Bewusstsein trat in diesen Käfig und ließ das Meiste von Dir draußen.
 
 Du hast die Tür geschlossen.
 
@@ -560,7 +560,7 @@ Du hast keine andere Wahl als Dein Selbst um Hilfe zu bitten.
 
 Schauen wir uns den Vertrag des Heiligen Grals  an und sehen, warum er funktioniert:
 
-"Ich werde dir bedingungslos vertrauen, wenn du mir die Fähigkeit entziehst, jemanden zum Opfer zu machen."
+*Ich werde dir bedingungslos vertrauen wenn du mir die Fähigkeit entziehst, jemanden zum Opfer zu machen.*
 
 Die Pronomen "ICH", "ich" und "Du" sind eine Ego-Illusion im Käfig. Außerhalb des Käfigs beziehen sie sich alle auf ein einzelnes Wesen.
 
@@ -568,17 +568,16 @@ Ein "Opfer" oder "Täter" existiert nur als Ich-Illusion im Käfig. Außerhalb d
 
 Du hast einen "Vertrag mit Dir selbst" geschlossen, indem du bereitwillig in den Käfig gestiegen bist. Das allein ist eine Ego-Illusion, da ein Einparteienvertrag weder in der Einheit noch in der Dualität existieren kann. Es ist Fiktion.
 
-Genauer gesagt, Sie haben sich einfach entschieden und es getan. Keinen Schaden, kein Fehltritt.
+Genauer gesagt, Du hast Dich einfach entschieden und es getan. Kein Schaden, kein Fehltritt.
 
 Im Käfig erzeugt das Ego selbst die Ego-Illusion des Selbst-Betruges, die ebenfalls weder in der Dualität noch in der Einheit existieren kann. Es ist Fiktion.
 
-Wenn Sie den Vertrag annehmen, können Sie nicht vollständig im Käfig bleiben, weil Sie nach draußen gehen müssen, um den Vertrag zu erfüllen, denn Einheit ist dort "wo es keine Opfer gibt".
+Wenn Du den Vertrag annimmst, kannst Du nicht vollständig im Käfig bleiben, weil Du nach draußen gehen müsst um den Vertrag zu erfüllen, denn Einheit ist dort "wo es keine Opfer gibt".
 
-Der Vertrag besteht auf Dauer. Denn wenn "Du" nicht „bedingungslos vertraust“, würdest Du jemanden zum Opfer machen, da "Du" gegen den Vertrag verstoßen würdest, und das ist ausdrücklich verboten, wenn "Du“ den Vertrag von vornherein annimmst.
+Der Vertrag besteht auf Dauer. Denn wenn "Du" nicht „bedingungslos vertraust“, würdest Du jemanden zum Opfer machen, da "Du" gegen den Vertrag verstoßen würdest. Und das ist ausdrücklich verboten, wenn "Du“ den Vertrag von vornherein annimmst.
 
---
 
-Hat das geholfen?
+<p align="center> Hat das geholfen? </p>
 
 
 
