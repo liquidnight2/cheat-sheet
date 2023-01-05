@@ -526,14 +526,14 @@ Der Schlüssel liegt darin, zu erkennen, warum das Bild, Konzept oder Ereignis w
 Dieser Prozess des Lösens des Elements, auf das Deine bewusste Aufmerksamkeit gelenkt wird, wiederholt sich immer wieder, bis der ganze Zweck für alle bedeutungsvollen Ereignisse in Deinem Leben bestimmt ist. Es beginnt einfach mit neugierigen Fragen über das eigene Leben, die beantwortet werden. Dann bewegt sich der Prozess, um die Natur von unangenehmeren Ereignissen zu enthüllen. Ein Hauptziel des Prozesses ist es langsam Vertrauen in den Prozess und insbesondere in Ø zu entwickeln und dann mehr Mut zu entwickeln, sich mit immer unbequemeren "dunklen Lebensinhalten" auseinanderzusetzen. Dir werden Dinge offenbart, an Du Dich vorher nicht erinnern konntest,  🔴 weil Du neuen Mut hast, das Erlebte zu verarbeiten. Es ist ein bewusster Prozess, der Dich im angenehmsten Tempo durch Deine Geschichte bewegt.
 
 
+
+Es muss jedoch anerkannt werden dass es einen Grund gibt, warum Du diesen unangenehmen Erinnerungen und Ereignissen überhaupt nicht begegnet bist. Die Ereignisse können beängstigend sein, selbst wenn der Prozess ordnungsgemäß abläuft. Es hilft zu wissen dass es wichtig und notwendig ist, zur Beseitigung des emotionalen Stigmas führt und getan wird, damit Du vor allem wahrgenommenen Schaden geschützt bist.
+
+Der Vertrag ist ein "Medium des  Wandels". Sobald Du den Prozess durchlaufen hast, wirst Du wissen, was wirklich passiert ist. Du hast Dir erlaubt aufzuwachen und verantwortlich zu sein. Der Vertrag ist eine fassbare Hilfe oder ein Mechanismus, der Dir dabei hilft. Du hast hohe Ansprüche, und Du wirst es   🔴  nicht zulassen bis Du weißt, dass Du bereit bist. Das Naturgesetz wird dann ein inhärenter Aspekt Deiner Erfahrung sein, da alle verantwortlichen Menschen das Gesetz kennen.
+
+
 ---
 :scroll: 
-
-
-Es muss jedoch anerkannt werden dass es einen Grund gibt, warum Sie diesen unangenehmen Erinnerungen und Ereignissen überhaupt nicht begegnet sind. Die Ereignisse können beängstigend sein, selbst wenn der Prozess ordnungsgemäß abläuft. Es hilft zu wissen dass es wichtig und notwendig ist, zur Beseitigung des emotionalen Stigmas führt und getan wird, damit Sie vor allem wahrgenommenen Schaden geschützt sind.
-
-Der Vertrag ist ein "Vehikel für Wandel". Sobald Sie den Prozess durchlaufen haben, werden Sie wissen, was wirklich passiert ist. Sie haben sich erlaubt aufzuwachen und verantwortlich zu sein. Der Vertrag ist eine physischer 🔴???    List oder ein Mechanismus, der Ihnen dabei hilft. Sie haben hohe Ansprüche, und Sie werden es nicht zulassen bis Sie wissen, dass Sie bereit sind. Das Naturgesetz wird dann ein inhärenter Aspekt Ihrer Erfahrung sein, da alle verantwortlichen Menschen das Gesetz kennen.
-
 
 
 
