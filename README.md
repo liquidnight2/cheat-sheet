@@ -7,8 +7,10 @@
 # Noch nicht fertig !!
 ### 	This is not finished yet!	24 red dots.
 
-<p>	<!--   <img src="https://cdn.discordapp.com/attachments/1058431906544373810/1060363134000431164/WIP_A.png" width="200" align="right" />   --> 
-<img src="https://ukyophtho.files.wordpress.com/2018/08/work-in-progress-gif-11.gif" width="200" align="right" />
+<p>	
+<!--  <img src="https://cdn.discordapp.com/attachments/1058431906544373810/1060363134000431164/WIP_A.png" width="200" align="right" />    --> 
+
+<img src="https://64.media.tumblr.com/54935756324d11ffe663133fce769654/tumblr_mhcoodLwjY1rlw32xo1_500.gif" width="200" align="right" />
 
 
 </p> <br/> <br/> <br/>
