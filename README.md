@@ -10,7 +10,7 @@
 <p>	
 <!--  <img src="https://cdn.discordapp.com/attachments/1058431906544373810/1060363134000431164/WIP_A.png" width="200" align="right" />    --> 
 
-<img src="https://64.media.tumblr.com/54935756324d11ffe663133fce769654/tumblr_mhcoodLwjY1rlw32xo1_500.gif" width="200" align="right" />
+<img src="http://1.bp.blogspot.com/-JaSe4eMP4Wc/UAgGb4tBIeI/AAAAAAAAAPw/Fa66_2w2HZ4/s1600/Work_in_progress.png" width="200" align="right" />
 
 
 </p> <br/> <br/> <br/>
