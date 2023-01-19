@@ -5,7 +5,7 @@
 
 
 # Noch nicht fertig !!
-### 	This is not finished yet!	27 red dots.
+### 	This is not finished yet!	24 red dots.
 
 <p>	<img src="https://cdn.discordapp.com/attachments/1058431906544373810/1060363134000431164/WIP_A.png" width="200" align="right" />
 </p> <br/> <br/> <br/>
@@ -162,16 +162,14 @@ Mein bester Rat ist, sich zu entspannen. Du bist bereits dabei. Eigentlich warst
 
 Ich werde einen anderen Ansatz versuchen und vielleicht kannst Du sehen, worauf ich hinaus will. Ich zeige auf den Mond, aber lassen Dich  nicht vom Finger ablenken.
 
-Es ist, als hätte man ein Wort „auf der Zunge“. Je mehr Du versuchst, Dich zu erinnern, desto mehr blockierst Du Deinen Prozess und desto mehr entzieht er sich Dir. Wenn Du dann um 3:00 Uhr morgens entspannt bist, kommt es automatisch zu Dir. Dies liegt daran, dass der   🔴 ???    „Speicher-Server“-Rückstand gelöscht werden durfte.   
+Es ist, als hätte man ein Wort „auf der Zunge“. Je mehr Du versuchst, Dich zu erinnern, desto mehr blockierst Du Deinen Prozess und desto mehr entzieht er sich Dir. Wenn Du dann um 3:00 Uhr morgens entspannt bist, kommt es automatisch zu Dir. Dies liegt daran dass der  Erinnerungs-Stapel gelöscht werden durfte.   
 
 Weil diese Dinge, über die hier gesprochen wird, so nuanciert sind, dass Du nicht direkt darauf eingehen kannst. Der Grund dafür ist, dass das Ego (ich werde später darauf eingehen) die Jalousie an die gleiche Stelle bewegt, an der Ihre Augen hinsehen. Das ist seine Funktion. Ø wird von selbst kommen. Ich weiß, es wird. Sonst wärst Du jetzt nicht hier.
-
 
 
 ### Was funktioniert, ist Folgendes:
 
 #### 1. Vertraue  darauf, dass Du jetzt genau das bekommen, was Du am meisten brauchst (wir wissen bereits, was Du willst). Das Problem ist, dass das Ego das auch tut und Leiden erzeugt, indem es zurückhält was Du willst. Das, was Du am meisten willst, wird zurückgehalten und das, was Dir unangenehm ist, wird Dich heimsuchen. Die emotionale „Energie“ oder Konzentration die Du aufbringst, erzeugt ein Ungleichgewicht und die Reaktion ist immer gegensätzlich. Für jede Aktion gibt es eine gleiche und entgegengesetzte Reaktion. Das gilt auch für Emotionen. Alle Emotionen sind Ego. Ja, sogar Liebe zu „fühlen“.  
-    
     
     
 #### 2. Achte auf das, was Du erlebst und nimm es ernst. Nichts ist unwichtig. Ø lässt am Anfang etwas locker und lehrt nicht zwei Dinge gleichzeitig. Obwohl meine Lektionen komplex sind, sind sie eine nach der anderen. Ja, ich bin auch dabei, und ich mache das ewig so wie Du. Was Du gerade erlebst - ist die Lektion.  
@@ -192,7 +190,6 @@ Wir existieren in einem Zustand reduzierter Energie, in dem das Wirt-Parasit/Her
 
 ### Die Verwirrten sind die Letzten, die wissen, dass sie verwirrt sind.
 
-
 Wenn sie wüssten dass sie verwirrt waren, würden sie sofort daran arbeiten, Abhilfe zu schaffen. Das ist eine andere Eigenschaft: Verwirrung kann nicht durch Arbeit oder Anstrengung behoben werden. Die Hauptmethode besteht darin anzuhalten und eine automatische Behebung zuzulassen. Hör auf zu denken und erlaube deiner Meinung, sich zu ändern. Das ist nicht so einfach, wie Du denkst.
 
 
@@ -205,7 +202,6 @@ Wir sind oft vom Jetzt abgelenkt und reagieren auf Dinge, die passieren könnten
 
 
 Die Entscheidung auf der Grundlage einer akuten Beobachtung zu antworten oder nicht zu antworten, und die Konzentration unserer Aufmerksamkeit auf das Jetzt - stellen den besten Ansatz für eine korrekte Reaktion sicher. Das Wissen um das natürliche/göttliche Gesetz hilft bei seiner Anwendung, um sicherzustellen, dass man unerwünschte Folgen vermeidet, da das Gesetz durchgängig fehlerlos ist mit beobachtbarer Ursache-Wirkungs-Beziehung in der Realität. Vorausgesetzt man hat eine ausreichende Beherrschung der gesetzmäßigen Prinzipien. Beispiel: Wenn ich einen Stein in der Hand halte und ihn loslasse, sind wir ziemlich sicher dass der Stein fallen wird. Das bedeutet nicht, die Zukunft vorherzusagen, sondern lediglich ausreichende Kenntnisse darüber zu haben wie das Gesetz der Schwerkraft funktioniert, wenn wir es auf diese Situation anwenden.
-
 
 
 Sich der Wirkung bewusst sein, die unsere Reaktionen in Bezug auf andere haben. Indem wir sicherstellen, dass wir das Richtige tun, indem wir nicht gegen ihren Willen verstoßen, wird dies als verantwortungsbewusstes und kompetentes Verhalten angesehen.
