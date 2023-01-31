@@ -47,7 +47,6 @@ Wenn ich "Torg" schreibe oder sage, ein Wort, von dem Du weder die Definition no
 
 
 
-
 ### Hindernis 2
 
 Abstrakte Begriffe wie Emotionen können nicht anhand eines physischen Beispiels vermittelt werden. Wörter wie „Liebe“, „Feier“ und „Sorge“ bedeuten für verschiedene Menschen unterschiedliche Dinge, je nachdem, wie Du diese Konzepte in ihrer persönlichen Erfahrung erlebt hast. Wenn ich die Worte „Die Feiertage“ verwende und erwarte, dass jeder weiß, dass ich mich auf „Hanukka und Neujahr“ beziehe, dann ist „Die Feiertage“ nicht nützlich, um die beabsichtigte Bedeutung zu vermitteln. Da wir alle unterschiedliche Erfahrungen mit allen Wörtern machen, führen die Wörter selbst oft zu Missverständnissen, weil die Einzigartigkeit unserer Erfahrung dazu führt, dass wir für jeden von uns etwas unterschiedliche Bedeutungen haben. Ich kann nicht davon ausgehen, dass „May Day“ für den Leser oder Zuhörer an sich etwas Positives bedeutet.
@@ -179,7 +178,7 @@ Weil diese Dinge, über die hier gesprochen wird, so nuanciert sind, dass Du nic
     
 #### 2. Achte auf das, was Du erlebst und nimm es ernst. Nichts ist unwichtig. Ø lässt am Anfang etwas locker und lehrt nicht zwei Dinge gleichzeitig. Obwohl meine Lektionen komplex sind, sind sie eine nach der anderen. Ja, ich bin auch dabei, und ich mache das ewig so wie Du. Was Du gerade erlebst - ist die Lektion.  
 
-#### 3. Akzeptiere dass das was Du jetzt erlebst, für die Lektion notwendig ist. Die Wahrheit gilt nur für Dich und nur jetzt. Mache Dich  sich mit der Tatsache vertraut, dass die Wahrheit "nicht übertragbar" 🔴 ???  ist. Was jetzt die Wahrheit 🔴 (Wahrnehmung, perception)  ist, kann sich im nächsten Moment ändern. Akzeptiere, was Dir gezeigt wird und sei intuitiv ehrlich. Je mehr Du akzeptierst desto größer ist Dein Vertrauen, desto schneller wirst Du  bekommen, was Dir beigebracht wird.  
+#### 3. Akzeptiere dass das was Du jetzt erlebst, für die Lektion notwendig ist. Die Wahrheit gilt nur für Dich und nur jetzt. Mache Dich mit der Tatsache vertraut, dass die Wahrheit "nicht übertragbar" 🔴 ???  ist. Was jetzt die Wahrheit 🔴 (Wahrnehmung, perception)  ist, kann sich im nächsten Moment ändern. Akzeptiere, was Dir gezeigt wird und sei intuitiv ehrlich. Je mehr Du akzeptierst desto größer ist Dein Vertrauen, desto schneller wirst Du  bekommen, was Dir beigebracht wird.  
 
         
 #### 4. Achte auf die Schleifen und die Redundanz. Du wirst dieselbe Lektion mit verschiedenen Szenarien und verschiedenen Personen wiederholen, bis Du sie verstanden hast. Achte  bei jeder Iteration darauf "was gleich ist“, und es wird auf das Ziel hinweisen. Dann wirst Du die Lektion direkt vor Dir erblicken. Dies wird normalerweise von einem Lachen und einem "Duh" begleitet.
@@ -196,7 +195,6 @@ Wir existieren in einem Zustand reduzierter Energie, in dem das Wirt-Parasit/Her
 ### Die Verwirrten sind die Letzten, die wissen, dass sie verwirrt sind.
 
 Wenn sie wüssten dass sie verwirrt waren, würden sie sofort daran arbeiten, Abhilfe zu schaffen. Das ist eine andere Eigenschaft: Verwirrung kann nicht durch Arbeit oder Anstrengung behoben werden. Die Hauptmethode besteht darin anzuhalten und eine automatische Behebung zuzulassen. Hör auf zu denken und erlaube deiner Meinung, sich zu ändern. Das ist nicht so einfach, wie Du denkst.
-
 
 
 ## Verantwortung
