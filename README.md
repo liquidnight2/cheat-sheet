@@ -23,7 +23,7 @@
 
 ### Vorwort
 
-Der Spickzettel ist ein rechtmäßiger[^1] 🔴 Mechanismus, der es dem Leser ermöglicht, den Heiligen Gral der Arthurianischen Legende zu erfassen und zu enthüllen.  Die Entwicklung des Dokuments hat 10 Jahre gebraucht, und  es entwickelt sich weiter wenn neue Dinge ans Licht kommen. Obwohl der Heilige Gral selbst überraschend einfach ist, bleibt er unserer Wahrnehmung verborgen. Wenn man versucht, das Wissen zu teilen, muss der Empfänger seine eigenen selbst auferlegten Hindernisse und den vorprogrammierten inneren Widerstand gegen die Informationen überwinden. Es hat genau 30 Jahre gedauert, seit ich 12 Jahre alt war (1976-2006) und begann, danach zu suchen, bis ich mich so weit entwirrt hatte, dass ich es endlich begreifen konnte. Während dieser Zeit (obwohl ich es damals nicht wusste) war mein ganzes Leben, alles, was ich erlebte und alles, was ich hatte, diesem Ziel gewidmet. Den größten Teil des Weges wurde ich tretend und schreiend hindurchgezerrt.
+Der Spickzettel ist ein rechtmäßiger[^1] 🔴 Mechanismus, der es dem Leser ermöglicht, den Heiligen Gral der Arthurianischen Legende zu erfassen und zu enthüllen.  Die Entwicklung des Dokuments hat 10 Jahre gebraucht, und  es entwickelt sich weiter wenn neue Dinge ans Licht kommen. Obwohl der Heilige Gral selbst überraschend einfach ist, bleibt er unserer Wahrnehmung verborgen. Wenn man versucht, das Wissen zu teilen, muss der Empfänger seine eigenen selbst auferlegten Hindernisse und den vorprogrammierten inneren Widerstand gegen die Informationen überwinden. Es hat genau 30 Jahre gedauert, seit ich 12 Jahre alt war (1976-2006) und begann danach zu suchen, bis ich mich so weit entwirrt hatte, dass ich es endlich begreifen konnte. Während dieser Zeit (obwohl ich es damals nicht wusste) war mein ganzes Leben -  alles was ich erlebte und alles was ich hatte, diesem Ziel gewidmet. Den größten Teil des Weges wurde ich tretend und schreiend hindurchgezerrt.
 
 In diesem Dokument werde ich zunächst versuchen, die meisten Hindernisse und Barrieren für das Verständnis wegzufegen, die Voraussetzungen für das Verständnis aufzuzeigen und zu enthüllen, was der Heilige Gral ist, wie er funktioniert und wie man diesen Mechanismus im Leben in Kraft setzt.
 
@@ -551,7 +551,7 @@ Der Vertrag besteht auf Dauer. Denn wenn "Du" nicht „bedingungslos vertraust�
 [^1]:	rechtmäßig:  Recht == Wille zu einer Aktion die keinem beseelten Wesen schadet.  	<br/>
 	Hierbei ist die natürliche bzw. gottgegebene Grenze des Verhaltens gemeint. 	<br/>
  
-[^2]:	Natur:	NTR == Gott / die feinstoffliche Energie / die große Seele / der Erschaffer des Universums <br/>
+[^2]:	Natur:	NTR == Gott  / der Erschaffer des Universums / die große Seele / die feinstoffliche Energie  <br/>
 
 <hr/>
 
