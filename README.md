@@ -178,15 +178,14 @@ Weil diese Dinge, über die hier gesprochen wird, so nuanciert sind, dass Du nic
     
 #### 2. Achte auf das, was Du erlebst und nimm es ernst. Nichts ist unwichtig. Ø lässt am Anfang etwas locker und lehrt nicht zwei Dinge gleichzeitig. Obwohl meine Lektionen komplex sind, sind sie eine nach der anderen. Ja, ich bin auch dabei, und ich mache das ewig so wie Du. Was Du gerade erlebst - ist die Lektion.  
 
-#### 3. Akzeptiere dass das was Du jetzt erlebst, für die Lektion notwendig ist. Die Wahrheit gilt nur für Dich und nur jetzt. Mache Dich mit der Tatsache vertraut, dass die Wahrheit "nicht übertragbar" 🔴 ???  ist. Was jetzt die Wahrheit 🔴 (Wahrnehmung, perception)  ist, kann sich im nächsten Moment ändern. Akzeptiere, was Dir gezeigt wird und sei intuitiv ehrlich. Je mehr Du akzeptierst desto größer ist Dein Vertrauen, desto schneller wirst Du  bekommen, was Dir beigebracht wird.  
+#### 3. Akzeptiere dass das was Du jetzt erlebst, für die Lektion notwendig ist. Die Wahrheit gilt nur für Dich und nur jetzt. Mache Dich mit der Tatsache vertraut, dass die Wahrheit nicht übertragbar ist. Was jetzt die Wahrnehmung ist, kann sich im nächsten Moment ändern.  Akzeptiere, was Dir gezeigt wird und sei intuitiv ehrlich. Je mehr Du akzeptierst desto größer ist Dein Vertrauen, desto schneller wirst Du  bekommen, was Dir beigebracht wird.  
 
         
 #### 4. Achte auf die Schleifen und die Redundanz. Du wirst dieselbe Lektion mit verschiedenen Szenarien und verschiedenen Personen wiederholen, bis Du sie verstanden hast. Achte  bei jeder Iteration darauf "was gleich ist“, und es wird auf das Ziel hinweisen. Dann wirst Du die Lektion direkt vor Dir erblicken. Dies wird normalerweise von einem Lachen und einem "Duh" begleitet.
     
 #### 5. Am Anfang wird Dir beigebracht "wie Du belehrt wirst", und nicht was Du "anstrebst". Das kommt wenn Du den Lernprozess beendest und Deiner Erfahrung vertraust und sich damit wohler fühlst wie es funktioniert. Dann entspanne Dich und die notwendigen Lektionen vergehen immer schneller.  
     
-
-Wenn der richtige Zeitpunkt für Dich gekommen ist, wird Ø Dich 🔴 heimsuchen, weil Du einfach die Wahrnehmungsbarrieren beseitigt hast und es so aussehen wird, als ob Ø die ganze Zeit direkt vor Dir gewesen wäre.
+Wenn der richtige Zeitpunkt für Dich gekommen ist, wird sich  Ø Deiner Wahrnehmung offenbaren. Du hast dann  einfach die Wahrnehmungsbarrieren beseitigt  und es wird so aussehen, als ob Ø die ganze Zeit direkt vor Dir gewesen wäre.
 
 Wir sind hier um zu lernen, und es ist für die Vorfahren keine Überraschung dass wir hier das durchmachen, was wir durchmachen sollen. Bewusstsein (Du, ich, alle) testet Dinge durch Erfahrung. Es ist eine Sache das zu wissen, und eine ganz andere das selbst zu erleben.
 
@@ -213,7 +212,7 @@ Außerdem müssen wir wissen, dass wir die Pflicht haben, uns angemessen um diej
 
 Angenommen, wir haben einen Treuhandfonds oder eine Erbschaft, die auf uns wartet? Es kann uns nicht gegeben werden, wenn wir nicht kompetent oder verantwortlich sind den Fonds ordnungsgemäß zu verwalten. Wir müssen diese Kompetenz demonstrieren bevor wir das erhalten können, was uns gehört.
 
-Verantwortlichkeit bedeutet die Konsequenzen zu akzeptieren, entweder positiv oder negativ, wenn wir als Reaktion auf das agieren, was gerade passiert. Wenn man nicht verantwortlich agiert, kann man nicht hoffen, weitere Rechte auszuüben.  🔴 Da dieser Mangel an Verantwortungsbewusstsein  der Ausübung von Rechten in der Natur innewohnt, handelt es sich überhaupt nicht um ein Recht, sondern um einen Fehler der zu einer Verletzung der Rechte Anderer führt.
+Verantwortlichkeit bedeutet die Konsequenzen zu akzeptieren, entweder positiv oder negativ, wenn wir als Reaktion auf das agieren, was gerade passiert. Wenn man nicht verantwortlich agiert, kann man nicht hoffen, weitere Rechte auszuüben. Da dieser Mangel an Verantwortungsbewusstsein  der Ausübung von Rechten in der Natur innewohnt, handelt es sich überhaupt nicht um ein Recht, sondern um einen Fehler der zu einer Verletzung der Rechte Anderer führt.
 
 
 
