@@ -5,22 +5,20 @@
 
 
 # Noch nicht fertig !!
-### 	This is not finished yet!	24 red dots.
+### 	This is not finished yet!	19 red dots.
 
 <p>	
 <!--  <img src="https://cdn.discordapp.com/attachments/1058431906544373810/1060363134000431164/WIP_A.png" width="200" align="right" />    --> 
 
 <img src="http://1.bp.blogspot.com/-JaSe4eMP4Wc/UAgGb4tBIeI/AAAAAAAAAPw/Fa66_2w2HZ4/s1600/Work_in_progress.png" width="200" align="right" />
 
+</p> <br/> <br/>
 
-</p> <br/> <br/> <br/>
-
-
-<hr break="all"/>
 
 <div align="center><img src="http://www.roage.com/img/hg.png" width="300"  /></div>
 
-<br/> <br/> <br/>
+<hr break="all"/>
+<br/> <br/> <br/>  <br/>
 
 
 ### Vorwort
