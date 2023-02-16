@@ -252,16 +252,8 @@ Man kann diese Zahlen nicht übersehen. Die Benachrichtigung erfolgt durch die S
 
 Naturgesetz (Natural Spiritual Law, Gesetze auf der Ebene der Seelen) und Verantwortung sind die einzigen Mittel, um sowohl den Wahnsinn als auch die Verwirrung zu lindern, die diesen Wahnsinn verursacht. Es liegt daran, dass Ø das Naturgesetz durchsetzt und Ø nichts gegen Ihren Willen erzwingen wird. Und ich weiß schon, was du denkst: Ja richtig! Um das Naturgesetz zu verstehen, müssen wir mit den Komponenten dessen beginnen, was Du wirklich bist. Wir sind Bewusstsein und das Bewusstsein selbst besteht aus zwei Komponenten.
 
+Wir sind eine individuell unterteilte beobachtende Facette von Ø. Dein Leben besteht darin Bewusstsein durch ein begrenztes Werkzeug zu erfahren. Es ist nicht möglich, dass Ø vollständig durch einen Fleischanzug bzw. ein Leben  ausgedrückt wird.  Es würde mehr Leben beanspruchen, als das Universum aufnehmen kann. Jeder von uns macht seine Arbeit, um spezifische Erfahrungen für Ø zu gewinnen.
 
-Wir sind eine individuell unterteilte beobachtende Facette von Ø. Dein Leben besteht darin Bewusstsein durch ein begrenztes Werkzeug zu erfahren. Es ist nicht möglich, dass Ø vollständig durch einen Fleischanzug bzw. win Leben  ausgedrückt wird. 
-
-
-  🔴 Es würde mehr Leben kosten, als das Universum aufnehmen kann. 
-Ø  
-
-
-
-Jeder von uns macht seine Arbeit, um spezifische Erfahrungen für Ø zu gewinnen.
 
 Ego ist der physische Ausdruck dieser begrenzten Facette von Ø. Es ist die Simulation des wahrgenommenen Universums, in der Du dich befindest. Es ist Dualität oder die Illusion von "Anderen". Es sind all Deine Gedanken, all Deine Gefühle, alle Handlungen und alle Ereignisse. Sogar die Wahrnehmung von Zeit und Volumen ist nur Ego. Die Schnittstelle für diesen Aspekt ist die linke Gehirnhälfte.
 
@@ -554,10 +546,10 @@ Der Vertrag besteht auf Dauer. Denn wenn "Du" nicht „bedingungslos vertraust�
 <br/><br/>
 
 [^1]:	rechtmäßig:  Recht == Wille zu einer Aktion die keinem beseelten Wesen schadet.  	<br/>
-	Hierbei ist die natürliche bzw. gottgegebene Grenze des Verhaltens gemeint. 
+	Hierbei ist die natürliche bzw. gottgegebene Grenze des Verhaltens gemeint. <br/>
 	Innerstaatliche Gesetze sind hier nicht gemeint	<br/>
  
-[^2]:	Natur:	NTR == Gott  / der Erschaffer des Universums / die große Seele / die feinstoffliche Energie 
+[^2]:	Natur:	NTR == Gott  / der Erschaffer des Universums / die große Seele / die feinstoffliche Energie <br/>
 	Natural Law: Gesetze auf der Ebene der Seelen <br/>
  <br/>
 
