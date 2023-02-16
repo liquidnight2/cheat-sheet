@@ -547,10 +547,11 @@ Der Vertrag besteht auf Dauer. Denn wenn "Du" nicht „bedingungslos vertraust�
 
 [^1]:	rechtmäßig:  Recht == Wille zu einer Aktion die keinem beseelten Wesen schadet.  	<br/>
 	Hierbei ist die natürliche bzw. gottgegebene Grenze des Verhaltens gemeint. <br/>
-	Innerstaatliche Gesetze sind hier nicht gemeint	<br/>
+	Innerstaatliche Regeln sind nicht gemeint.	<br/>
  
 [^2]:	Natur:	NTR == Gott  / der Erschaffer des Universums / die große Seele / die feinstoffliche Energie <br/>
 	Natural Law: Gesetze auf der Ebene der Seelen <br/>
+	"Naturgesetz" aus dem 16. Jh. (Kampf aller gegen alle, materialistische Weltsicht)  ist nicht gemeint.
  <br/>
 
 <hr/>
