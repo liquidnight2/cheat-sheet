@@ -5,7 +5,7 @@
 
 
 # Noch nicht fertig !!
-### 	This is not finished yet!	19 red dots.
+### 	This is not finished yet!	16 issues.
 
 <p>	
 <!--  <img src="https://cdn.discordapp.com/attachments/1058431906544373810/1060363134000431164/WIP_A.png" width="200" align="right" />    --> 
