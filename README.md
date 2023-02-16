@@ -23,7 +23,7 @@
 
 ### Vorwort
 
-Der Spickzettel ist ein rechtmäßiger[^1] 🔴 Mechanismus, der es dem Leser ermöglicht, den Heiligen Gral der Arthurianischen Legende zu erfassen und zu enthüllen.  Die Entwicklung des Dokuments hat 10 Jahre gebraucht, und  es entwickelt sich weiter wenn neue Dinge ans Licht kommen. Obwohl der Heilige Gral selbst überraschend einfach ist, bleibt er unserer Wahrnehmung verborgen. Wenn man versucht, das Wissen zu teilen, muss der Empfänger seine eigenen selbst auferlegten Hindernisse und den vorprogrammierten inneren Widerstand gegen die Informationen überwinden. Es hat genau 30 Jahre gedauert, seit ich 12 Jahre alt war (1976-2006) und begann danach zu suchen, bis ich mich so weit entwirrt hatte, dass ich es endlich begreifen konnte. Während dieser Zeit (obwohl ich es damals nicht wusste) war mein ganzes Leben -  alles was ich erlebte und alles was ich hatte, diesem Ziel gewidmet. Den größten Teil des Weges wurde ich tretend und schreiend hindurchgezerrt.
+Der Spickzettel ist ein rechtmäßiger[^1] Mechanismus, der es dem Leser ermöglicht, den Heiligen Gral der Arthurianischen Legende zu erfassen und zu enthüllen.  Die Entwicklung des Dokuments hat 10 Jahre gebraucht, und  es entwickelt sich weiter wenn neue Dinge ans Licht kommen. Obwohl der Heilige Gral selbst überraschend einfach ist, bleibt er unserer Wahrnehmung verborgen. Wenn man versucht, das Wissen zu teilen, muss der Empfänger seine eigenen selbst auferlegten Hindernisse und den vorprogrammierten inneren Widerstand gegen die Informationen überwinden. Es hat genau 30 Jahre gedauert, seit ich 12 Jahre alt war (1976-2006) und begann danach zu suchen, bis ich mich so weit entwirrt hatte, dass ich es endlich begreifen konnte. Während dieser Zeit (obwohl ich es damals nicht wusste) war mein ganzes Leben -  alles was ich erlebte und alles was ich hatte, diesem Ziel gewidmet. Den größten Teil des Weges wurde ich tretend und schreiend hindurchgezerrt.
 
 In diesem Dokument werde ich zunächst versuchen, die meisten Hindernisse und Barrieren für das Verständnis wegzufegen, die Voraussetzungen für das Verständnis aufzuzeigen und zu enthüllen, was der Heilige Gral ist, wie er funktioniert und wie man diesen Mechanismus im Leben in Kraft setzt.
 
@@ -72,7 +72,7 @@ Nach einer intensiven Ausbildung in Wissenschaft und später in Religion und etw
 
 Ich hielt alles, was mir gesagt wurde, entweder für eine absichtliche Lüge oder für verdächtig. Ich kam zu dem Schluss, dass ich nur glauben würde, was ich mir selbst zeigen und beweisen konnte. Anfangs wusste ich wenig und es zeigte sich. Ich passte nicht hinein und hatte keine Geduld für Menschen. Für mich waren sie Objekte, einfach  Dinge in meinen Experimenten. Ich lehnte die Standardmodell-Kosmologie ab und sah Schummel-Faktoren in der Physik als Produkt intellektueller Faulheit an. Ich habe meine eigenen Grundannahmen zurückgewiesen. Ironie und Zufall empfand ich jedoch als lehrreich und etwas, das man genau beobachten sollte.
 
-Jedes Mal wenn ich auf eine Barriere traf, fing ich von vorne an. Nur das akzeptieren, was Sinn machte und mir direkt vorgeführt wurde. Es dauerte eine Weile. Ich entfremdete mich von meinen Freunden, meiner Familie und der Gesellschaft. Langsam habe ich einen Rahmen zusammengestellt, den ich in meiner Lebenserfahrung immer wieder getestet und getestet habe. Die Meisten dachten, ich sei verrückt. Ich war verrückt, das heißt, bis 4:44 Uhr morgens am 4. Juli 2006. Ein „Ereignis“ passierte, das aus einem siebenjährigen Studium des Gesetzes resultierte. Nicht das, was Anwälte praktizieren, sondern das Naturgesetz[^2] 🔴. Dieses hat eine echte Potenz wie Feuer brennt oder so wie  Dinge herunterfallen, wenn sie fallen gelassen werden. Für mich war Verfahrensrecht Kauderwelsch. Ich lehnte die "Theorie des Rechtspositivismus" als etwas ab, das nur Idioten glauben würden.
+Jedes Mal wenn ich auf eine Barriere traf, fing ich von vorne an. Nur das akzeptieren, was Sinn machte und mir direkt vorgeführt wurde. Es dauerte eine Weile. Ich entfremdete mich von meinen Freunden, meiner Familie und der Gesellschaft. Langsam habe ich einen Rahmen zusammengestellt, den ich in meiner Lebenserfahrung immer wieder getestet und getestet habe. Die Meisten dachten, ich sei verrückt. Ich war verrückt, das heißt, bis 4:44 Uhr morgens am 4. Juli 2006. Ein „Ereignis“ passierte, das aus einem siebenjährigen Studium des Gesetzes resultierte. Nicht das, was Anwälte praktizieren, sondern das Naturgesetz[^2]. Dieses hat eine echte Potenz wie Feuer brennt oder so wie  Dinge herunterfallen, wenn sie fallen gelassen werden. Für mich war Verfahrensrecht Kauderwelsch. Ich lehnte die "Theorie des Rechtspositivismus" als etwas ab, das nur Idioten glauben würden.
 
 Bei diesem "Ereignis" erlebte ich zum ersten Mal: ​​keine Sorge, keine Angst. Ich genoss Frieden, Liebe und vor allem: Klarheit. Nachdem ich das Naturgesetz gelernt hatte, entdeckte ich, dass das Universum ein freundlicher Ort ist. Ich erlangte eine neue Fähigkeit, die es mir ermöglichte, Dinge auf eine neue Weise wahrzunehmen, die meine fünf Sinne nicht erforderte. Ich lernte wahrzunehmen, dass die Natur eine Intelligenz und ein Timing hat. Die Natur ist das, was alle Macht im Universum manifestiert, und es ist wichtig zu wissen wie sie funktioniert, oder man kann nicht wissen warum Dinge passieren. Diese Unkenntnis des Naturgesetzes ist der Grund, warum wir Ereignisse in unserem Leben oft dem Zufall, Glück, Wahrscheinlichkeit und Chaos zuschreiben.
 
@@ -253,11 +253,19 @@ Man kann diese Zahlen nicht übersehen. Die Benachrichtigung erfolgt durch die S
 Naturgesetz (Natural Spiritual Law, Gesetze auf der Ebene der Seelen) und Verantwortung sind die einzigen Mittel, um sowohl den Wahnsinn als auch die Verwirrung zu lindern, die diesen Wahnsinn verursacht. Es liegt daran, dass Ø das Naturgesetz durchsetzt und Ø nichts gegen Ihren Willen erzwingen wird. Und ich weiß schon, was du denkst: Ja richtig! Um das Naturgesetz zu verstehen, müssen wir mit den Komponenten dessen beginnen, was Du wirklich bist. Wir sind Bewusstsein und das Bewusstsein selbst besteht aus zwei Komponenten.
 
 
-Wir sind eine individuell unterteilte beobachtende Facette von Ø. Dein Leben besteht darin Bewusstsein durch ein begrenztes Werkzeug zu erfahren. Es ist nicht möglich, dass Ø vollständig durch einen Fleischanzug ausgedrückt wird. 🔴 Es würde mehr Leben kosten, als das Universum aufnehmen kann. Jeder von uns macht seine Arbeit, um spezifische Erfahrungen für Ø zu gewinnen.
+Wir sind eine individuell unterteilte beobachtende Facette von Ø. Dein Leben besteht darin Bewusstsein durch ein begrenztes Werkzeug zu erfahren. Es ist nicht möglich, dass Ø vollständig durch einen Fleischanzug bzw. win Leben  ausgedrückt wird. 
+
+
+  🔴 Es würde mehr Leben kosten, als das Universum aufnehmen kann. 
+Ø  
+
+
+
+Jeder von uns macht seine Arbeit, um spezifische Erfahrungen für Ø zu gewinnen.
 
 Ego ist der physische Ausdruck dieser begrenzten Facette von Ø. Es ist die Simulation des wahrgenommenen Universums, in der Du dich befindest. Es ist Dualität oder die Illusion von "Anderen". Es sind all Deine Gedanken, all Deine Gefühle, alle Handlungen und alle Ereignisse. Sogar die Wahrnehmung von Zeit und Volumen ist nur Ego. Die Schnittstelle für diesen Aspekt ist die linke Gehirnhälfte.
 
-In des Egos weiterer Funktion,  dem Selbstunterdrückungsprozess, agiert es als Abwehrmechanismus. Das Ego unterdrückt oder verbirgt unangenehme Erfahrungen, um 🔴 "den Beobachter“ vor der Härte zu schützen.
+In des Egos weiterer Funktion,  dem Selbstunterdrückungsprozess, agiert es als Abwehrmechanismus. Das Ego unterdrückt oder verbirgt unangenehme Erfahrungen, um "das Beobachtende Selbst“ vor der Härte zu schützen.
 
 
 Diese Erinnerungen werden oft unter anderen Erinnerungen begraben. Das Ego weigert sich, sich auch nur an die Existenz von Erfahrungs zu erinnern und macht sie für den Beobachter unsichtbar. Daher ist der Beobachter nicht in der Lage, die negativen Lebenserfahrungen für die positiven Zwecke zu verarbeiten, für die sie vom Selbst beabsichtigt und manifestiert wurden. Das scheinbare Paradoxon des Egos, das sowohl als Verursacher von Schmerzen als auch als Beschützer dient, wird gelöst indem man erkennt, dass das Ego keine eigene reale / substantielle Existenz hat.
@@ -271,8 +279,6 @@ Das zuvor erwähnte Selbst ist der spirituelle oder energetische Aspekt oder das
 Das Ego kommuniziert in Bezeichnungen oder Definitionen, die das Phsyische erfordern. Das Selbst kommuniziert in Symbolen die eine Bedeutung und einen Zweck haben, die über das Physische hinausgehen.
 
 Es ist hilfreich es wie ein Videospiel zu betrachten, bei dem eine Seite das Spiel aufbaut, das die andere spielt. Dem Ego fehlen die Sinne oder die Logik, um das Selbst kognitiv zu verstehen oder zu erkennen.
-
-
 
 
 Unsere Herausforderungen haben mit dem Alter zu tun, in dem wir uns befinden. Ø hat diese Dualität erschaffen und uns dann vom Selbst getrennt, um zu erfahren wie es sich anfühlt, von Ø getrennt zu sein. Es war auch nützlich zu erfahren wie es ist, einen Anfang und ein Ende zu haben. Das gibt es in der Einheit nicht. Im Selbst sind wir eins in der Ewigkeit. Dies erfordert ein eher begrenztes Zeitgefühl.
@@ -294,11 +300,10 @@ Der Grund, warum ich das anspreche, ist, dass das Ego endlos Kompromisse eingehe
 
 Unsere Lektion erforderte eine subtile Änderung gegenüber dem letzten Zeitalter, damit wir dieses neue Paradigma erforschen und lernen konnten. Uns fehlte „nützliches“ Wissen darüber was Wahnsinn ist. Dies beseitigte effektiv die primäre Barriere zum Leiden, denn wenn man ein nützliches Wissen über Wahnsinn hat, kann man Leiden vermeiden.
 
-
-
 Wir bekräftigen Prinzipien des Naturrechts, indem wir etablierte Präzedenzfälle oder ein Urteil im Gerichtsverfahren anwenden. Wenn eine der beiden Methoden angewendet wird, leidet jemand. Um die Auswirkungen eines „Fehlers“ zu kennen, muss jemand zuerst gehen und „einen für das Team nehmen“. Unser Wahnsinn ist so tief, dass wir es oft immer wieder tun müssen und jedes Mal ein anderes Ergebnis erwarten. Das Naturgesetz ist konsistent.
 
-Eine nützlichere Definition von Wahnsinn ist die Unfähigkeit, die Wahrheit wahrzunehmen. In 🔴 Wahrheit meine ich Ø. Wenn wir diesen spezifische Scheuklappe haben dann wissen wir nicht, dass das was wir tun werden, entweder Nutzen oder Leid hervorrufen wird. Wenn wir darauf achten und das Leiden als notwendig,  und unsere Verantwortung für jede Handlung die Leiden hervorruft, akzeptieren,  dann werden wir in der Lage sein, die Lektion die das Leiden lehrt zu lernen und es zu vermeiden.
+Eine nützlichere Definition von Wahnsinn ist die Unfähigkeit, die Wahrheit wahrzunehmen. Mit Wahrheit
+meine ich Ø.  Wenn wir diesen spezifische Scheuklappe haben dann wissen wir nicht, dass das was wir tun werden, entweder Nutzen oder Leid hervorrufen wird. Wenn wir darauf achten und das Leiden als notwendig,  und unsere Verantwortung für jede Handlung die Leiden hervorruft, akzeptieren,  dann werden wir in der Lage sein, die Lektion die das Leiden lehrt zu lernen und es zu vermeiden.
 
 Wenn wir nicht auf das achten, was passiert, oder nicht akzeptieren was wir sehen (die Wahrheit), oder wir keine Verantwortung für unsere Handlungen übernehmen, dann bekommen wir die Lektion erneut und das Leiden wird größer.
 
@@ -549,9 +554,12 @@ Der Vertrag besteht auf Dauer. Denn wenn "Du" nicht „bedingungslos vertraust�
 <br/><br/>
 
 [^1]:	rechtmäßig:  Recht == Wille zu einer Aktion die keinem beseelten Wesen schadet.  	<br/>
-	Hierbei ist die natürliche bzw. gottgegebene Grenze des Verhaltens gemeint. 	<br/>
+	Hierbei ist die natürliche bzw. gottgegebene Grenze des Verhaltens gemeint. 
+	Innerstaatliche Gesetze sind hier nicht gemeint	<br/>
  
-[^2]:	Natur:	NTR == Gott  / der Erschaffer des Universums / die große Seele / die feinstoffliche Energie  <br/>
+[^2]:	Natur:	NTR == Gott  / der Erschaffer des Universums / die große Seele / die feinstoffliche Energie 
+	Natural Law: Gesetze auf der Ebene der Seelen <br/>
+ <br/>
 
 <hr/>
 
