@@ -369,7 +369,10 @@ Ich hatte eine grundlegende Hürde, die ich zuerst überwinden musste, und diese
 #### Ja!
 
 
-Ich interessierte mich sehr für Dinge, mit denen ich das 🔴 mache. Dies führte zu einem weiteren wichtigen Aspekt des Rechts. Wenn Du um Erlaubnis bittest, wird gesetzlich🔴 davon ausgegangen, dass Du eine Erlaubnis benötigst. Das musste ich sofort streichen. Bald begann ich fast magisch, all die Fiktionen zu entdecken, denen ich Macht über mich gab. Sobald ich das bemerkte, verloren sie die Kraft.
+Ich begann mich mich sehr für Dinge, mit denen ich das \[Dinge als wahr annehmen sie über Ø stellen\]  machte, zu interessieren. 
+
+Dies führte zu einem weiteren wichtigen Aspekt des Rechts. Wenn Du um Erlaubnis bittest, wird   gesetzlich[^3] 
+  davon ausgegangen, dass Du eine Erlaubnis benötigst. Das musste ich sofort streichen. Bald begann ich fast magisch, all die Fiktionen zu entdecken, denen ich Macht über mich gab. Sobald ich das bemerkte, verloren sie die Kraft.
 
 Dies führte zu einer Untersuchung darüber was Souveränität ist,  und wie Souveränität mit Verantwortung, Rechten und dem Vertragsrecht zusammenhängt. Später entdeckte ich, dass ein Großteil meiner Interaktion im Universum auf Vertrag beruhte und ich keine konstruktive Definition dafür hatte, was ein Naturgesetzvertrag ist oder wie ein Vertrag Macht und Kraft in der physischen Auswirkung manifestiert.
 
@@ -384,9 +387,21 @@ Wenn ich jeden Tag mit dem Osterhasen reden würde, würde ich mir auch nichts W
 
 
 
-Heutzutage werden im allgemeinen eine Reihe unterschiedlicher Realitätsmodelle benutzt, die uns seltsamerweise in die Lage versetzen der Gnade eines „zufälligen“ Universums ausgeliefert zu sein, und uns als Sklaven des Willens einer vermeintlichen „Mehrheit“ oder  einer kriminellen "Elite" darstellen. Zum Beispiel neigt die Vorstellung dass wir einen „absolut starken freien Willen“ haben, dazu, Zweck und Bedeutung aus unserem Leben zu entfernen, 🔴 während wir entscheiden dass alle Dinge durch unseren Willen manifestiert werden. 
+Heutzutage werden im allgemeinen eine Reihe unterschiedlicher Realitätsmodelle benutzt, die uns seltsamerweise in die Lage versetzen der Gnade eines „zufälligen“ Universums ausgeliefert zu sein, und uns als Sklaven des Willens einer vermeintlichen „Mehrheit“ oder  einer kriminellen "Elite" darstellen. Zum Beispiel neigt die Vorstellung dass wir einen „absolut starken freien Willen“ haben, dazu, Zweck und Bedeutung aus unserem Leben zu entfernen, indem wir entscheiden dass alle Dinge durch unseren Willen manifestiert werden. 
 
-Wenn wir (das Ego) keinen Zweck für das hat, was wir (das Ego) tun, wer hat sonst einen Zweck für das Ego?  Seltsamerweise neigt die Idee des starren Schicksals dazu, den gleichen Effekt zu haben. Wenn man irgendein Muster entlang des Spektrums zwischen absolut starkem freien Willen und vollständig geskriptetem Schicksal nimmt, dann verpasst man die dritte Option:  Indem die Realität zum Nutzen des Beobachters durch einen Stellvertreter erzeugt wird, so dass sie kontinuierlich und auf den Beobachter zugeschnitten ist, und wann 🔴 , der Betrachter braucht sie für alles, was er hier lernen und erfahren möchte. Die Paradigmen von Schicksal und freiem Willen bieten keinen Schutz vor der Mehrheit oder der "Elite" und wenig Seelenfrieden oder Freiheit.
+Wenn wir (das Ego) keinen Zweck für das hat, was wir (das Ego) tun, wer hat sonst einen Zweck für das Ego?  Seltsamerweise neigt die Idee des starren Schicksals dazu, den gleichen Effekt zu haben. Wenn man irgendein Muster entlang des Spektrums zwischen absolut starkem freien Willen und vollständig geskriptetem Schicksal nimmt, dann verpasst man die dritte Option:  
+
+Indem die Realität zum Nutzen des Beobachters durch einen Stellvertreter erzeugt wird, so dass sie kontinuierlich und auf den Beobachter zugeschnitten ist, 
+
+. 
+
+
+und wann 🔴 , 
+
+Der Betrachter braucht sie für alles, was er hier lernen und erfahren möchte. 
+
+
+Die Paradigmen von Schicksal und freiem Willen bieten keinen Schutz vor der Mehrheit oder der "Elite" und wenig Seelenfrieden oder Freiheit.
 
 Ich habe diese beiden Modelle getestet und sie scheinen wichtige Wahrheiten absichtlich vor uns zu verbergen. Wie können wir ein Werkzeug einsetzen, das uns absichtlich verborgen wurde? Ehrlich gesagt können wir das nicht, also liegt es an uns diese Werkzeuge zu finden, bevor wir sie einsetzen können. Dies erfordert ein Umdenken darüber, was wir glauben wo wir sind, was wir glauben was wir sind, und was wir glauben warum wir hier sind.   Das Ziel ist es, mit einem gewissen Maß an Gewissheit zu erkennen was wir sind; zu wissen wo wir sind; und zu wissen warum wir hier sind. Keine populäre Methode kann uns zu diesem Ziel führen, da es an uns liegt in eine andere Richtung zu gehen.
 
@@ -551,7 +566,10 @@ Der Vertrag besteht auf Dauer. Denn wenn "Du" nicht „bedingungslos vertraust�
  
 [^2]:	Natur:	NTR == Gott  / der Erschaffer des Universums / die große Seele / die feinstoffliche Energie <br/>
 	Natural Law: Gesetze auf der Ebene der Seelen <br/>
-	"Naturgesetz" aus dem 16. Jh. (Kampf aller gegen alle, materialistische Weltsicht)  ist nicht gemeint.
+	"Naturgesetz" aus dem 16. Jh. (Kampf aller gegen alle, der Stärkere gewinnt)  ist nicht gemeint.
+	
+[^3]:	Naturgesetz / Gottes Gesetz / Natural Law / Menschenverstand / Common Law
+ 	
  <br/>
 
 <hr/>
