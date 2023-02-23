@@ -5,7 +5,7 @@
 
 
 # Noch nicht fertig !!
-### 	This is not finished yet!	16 issues.
+### 	This is not finished yet!	12 issues.
 
 <p>	
 <!--  <img src="https://cdn.discordapp.com/attachments/1058431906544373810/1060363134000431164/WIP_A.png" width="200" align="right" />    --> 
@@ -369,10 +369,10 @@ Ich hatte eine grundlegende Hürde, die ich zuerst überwinden musste, und diese
 #### Ja!
 
 
-Ich begann mich mich sehr für Dinge, mit denen ich das \[Dinge als wahr annehmen sie über Ø stellen\]  machte, zu interessieren. 
-
-Dies führte zu einem weiteren wichtigen Aspekt des Rechts. Wenn Du um Erlaubnis bittest, wird   gesetzlich[^3] 
-  davon ausgegangen, dass Du eine Erlaubnis benötigst. Das musste ich sofort streichen. Bald begann ich fast magisch, all die Fiktionen zu entdecken, denen ich Macht über mich gab. Sobald ich das bemerkte, verloren sie die Kraft.
+Ich begann mich mich sehr für Dinge, mit denen ich das \[Dinge als wahr annehmen sie über Ø stellen\]  machte, zu interessieren. Dies führte zu einem weiteren wichtigen Aspekt des Rechts. Wenn Du um Erlaubnis bittest, wird   
+gesetzlich[^3]  davon ausgegangen, dass Du eine Erlaubnis benötigst. Das musste ich sofort streichen. 
+Bald begann ich fast magisch, all die Fiktionen zu entdecken, denen ich Macht über mich gab. 
+Sobald ich das bemerkte, verloren sie die Macht.
 
 Dies führte zu einer Untersuchung darüber was Souveränität ist,  und wie Souveränität mit Verantwortung, Rechten und dem Vertragsrecht zusammenhängt. Später entdeckte ich, dass ein Großteil meiner Interaktion im Universum auf Vertrag beruhte und ich keine konstruktive Definition dafür hatte, was ein Naturgesetzvertrag ist oder wie ein Vertrag Macht und Kraft in der physischen Auswirkung manifestiert.
 
@@ -390,15 +390,7 @@ Wenn ich jeden Tag mit dem Osterhasen reden würde, würde ich mir auch nichts W
 Heutzutage werden im allgemeinen eine Reihe unterschiedlicher Realitätsmodelle benutzt, die uns seltsamerweise in die Lage versetzen der Gnade eines „zufälligen“ Universums ausgeliefert zu sein, und uns als Sklaven des Willens einer vermeintlichen „Mehrheit“ oder  einer kriminellen "Elite" darstellen. Zum Beispiel neigt die Vorstellung dass wir einen „absolut starken freien Willen“ haben, dazu, Zweck und Bedeutung aus unserem Leben zu entfernen, indem wir entscheiden dass alle Dinge durch unseren Willen manifestiert werden. 
 
 Wenn wir (das Ego) keinen Zweck für das hat, was wir (das Ego) tun, wer hat sonst einen Zweck für das Ego?  Seltsamerweise neigt die Idee des starren Schicksals dazu, den gleichen Effekt zu haben. Wenn man irgendein Muster entlang des Spektrums zwischen absolut starkem freien Willen und vollständig geskriptetem Schicksal nimmt, dann verpasst man die dritte Option:  
-
-Indem die Realität zum Nutzen des Beobachters durch einen Stellvertreter erzeugt wird, so dass sie kontinuierlich und auf den Beobachter zugeschnitten ist, 
-
-. 
-
-
-und wann 🔴 , 
-
-Der Betrachter braucht sie für alles, was er hier lernen und erfahren möchte. 
+Entlang dieses Spektrums wird die Realität zum Nutzen des Beobachters durch einen Stellvertreter wird erzeugt, so dass sie kontinuierlich und auf den Beobachter zugeschnitten ist. Und zwar gerade dann wenn der Beobachter sie für alles braucht was er hier  lernen und erfahren möchte. 
 
 
 Die Paradigmen von Schicksal und freiem Willen bieten keinen Schutz vor der Mehrheit oder der "Elite" und wenig Seelenfrieden oder Freiheit.
@@ -416,7 +408,7 @@ Zunächst muss man verstehen dass wir mit dem uneingeschränkten Recht existiere
 
 Ø hat keinen Grund, mit Dir zu umzugehen, wenn Du nicht für Dich selbst verantwortlich bist.
 
-Souveränität wird gewährt von Ø und wenn Du  Dich bereitwillig dafür entscheidest, sie zu erhalten. Du erhältst immer eine konkrete und überzeugende Benachrichtigung, weil Du wissen musst wann das 🔴 passiert.
+Souveränität wird gewährt von Ø und wenn Du  Dich bereitwillig dafür entscheidest, sie zu erhalten. Du erhältst immer eine konkrete und überzeugende Benachrichtigung, weil Du wissen musst wann das passiert.
 
 Souveränität beinhaltet die Verantwortung für den eigenen Körper und geht mit Rechten und vor allem Verantwortung für das eigene Verhalten einher. Da Souveränität auf Gegenseitigkeit beruht, wird sie vertraglich gewährt. Die Gewährung der Souveränität muss bereitwillig beantragt werden, da die gewährende Gewalt  ( Ø ) den Vertrag der die Souveränität begründet, nicht erzwingen oder eine Bereitschaft von Dir voraussetzen wird, wenn diese nicht offen zum Ausdruck gebracht wurde.
 
