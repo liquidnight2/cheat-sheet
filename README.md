@@ -20,6 +20,9 @@
 <hr break="all"/>
 
 
+<img src="http://www.roage.com/img/hg.png" width="300"  />
+
+
 
 ### Vorwort
 
@@ -557,7 +560,7 @@ Der Vertrag besteht auf Dauer. Denn wenn "Du" nicht „bedingungslos vertraust�
  
 [^2]:	Natur:	NTR == Gott  / der Erschaffer des Universums / die große Seele / die feinstoffliche Energie <br/>
 	Natural Law: Gesetze auf der Ebene der Seelen <br/>
-	"Naturgesetz" aus dem 16. Jh. (Kampf aller gegen alle, der Stärkere gewinnt)  ist nicht gemeint.
+	"Naturgesetz" aus dem 16. Jh. (Kampf aller gegen alle, der Stärkere gewinnt, materialistische Weltsicht)  ist nicht gemeint.
 	
 [^3]:	Naturgesetz / Gottes Gesetz / Natural Law / Menschenverstand / Common Law
  	
