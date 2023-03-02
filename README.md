@@ -15,12 +15,13 @@
 </p> <br/> <br/>
 
 
-<div align="center><img src="http://www.roage.com/img/hg.png" width="300"  /></div>
 <br/> <br/> <br/>  <br/><br/> <br/> <br/>  <br/>
 <hr break="all"/>
 
 
 <img src="http://www.roage.com/img/hg.png" width="300"  />
+<br/> <br/> 
+<hr break="all"/>
 
 
 
