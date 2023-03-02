@@ -5,7 +5,7 @@
 
 
 # Noch nicht fertig !!
-### 	This is not finished yet!	12 issues.
+### 	This is not finished yet!	7 issues.
 
 <p>	
 <!--  <img src="https://cdn.discordapp.com/attachments/1058431906544373810/1060363134000431164/WIP_A.png" width="200" align="right" />    --> 
@@ -320,7 +320,7 @@ Verantwortungslosigkeit ist der Schlüssel zur Entrechtung. Verrückte haben kei
 
 Gerichte und Regierungen halten uns in unserem Ausgangszustand für verrückt, ohne Verantwortungsbewusstsein und ohne Rechte, es sei denn wir können beweisen, dass wir nicht verrückt sind. Das Problem ist dass wir weiterhin glauben, dass Fiktion real sei.  Wir kennen das Naturgesetz nicht und wir wissen nicht, wie wir uns das antun. Deshalb ist die Welt zu einem Irrenhaus geworden, in dem die Geisteskranken von anderen behandelt werden, die selbst geisteskrank sind. Der letzte Versuch, unseren Wahnsinn zu heilen, wird darin bestehen, dass wir gefoltert werden, bis wir entweder aus ihm herausbrechen oder sterben. Schaue Dich um und willkommen in der "Modernen Zeit".
 
-Du musst wirklich wollen, dass sich Dein Zustand ändert, bevor Du überhaupt das Naturgesetz in Bezug auf Verträge lernen kannst. Du musst bereit sein Verantwortung für Dein Leben zu übernehmen, bevor Du überhaupt das 🔴  Gesetz verlangst.    Die Verrückten sind von Natur aus gesetzlos.
+Du musst wirklich wollen, dass sich Dein Zustand ändert, bevor Du überhaupt das Naturgesetz in Bezug auf Verträge lernen kannst. Man muss bereit sein Verantwortung für sein Leben zu übernehmen, bevor man überhaupt das Wissen über das  Gesetz verlangen kann. Die Verrückten sind von Natur aus gesetzlos.
 
 Für mich war das Studium des Naturrechtsvertrags ausschlaggebend, denn um einen Vertrag abzuschließen, muss man kompetent und daher verantwortungsbewusst sein. Der Vertrag selbst enthält viele der Elemente, wie Du später sehen wirst.
 
@@ -355,7 +355,10 @@ Der Prozess, ein Gleichgewicht zwischen Ego und Selbst herzustellen, erfolgt dur
 
 Ich wusste nicht einmal, wo ich anfangen sollte, also las ich die Unabhängigkeitserklärung und die US-Verfassung. Es wurde gesagt, dass es auf biblischem Gesetz basiere und ich wollte sehen ob das der Fall ist. Nachdem ich diese Dokumente gelesen hatte, war ich noch verwirrter. Es schien ziemlich einfach, aber wenn sie das „Gesetz des Landes“ waren, was ist dann all dieses dumme Zeug, das in diesen Dokumenten keinen Bezug hatte. Ich ging zur Bibel um zu sehen ob ich einen Sinn darin erkennen könnte.
 
-Ich hatte eine grundlegende Hürde, die ich zuerst überwinden musste, und diese ergab sich aus einer Studie darüber, was wir als die 10 Gebote kennen und was das große Problem an ihnen war. Ich hatte meine 🔴 Spielerei mit der Religion, und das war eine Mauer als ich bemerkte dass die Religion das Buch, mit dem sie sich so beschäftigt, oft nicht versteht. Ich schaute auf das Erste Gebot um zu sehen, ob ich es verletzte: "Du sollst keine anderen Götter neben mir haben!". Die Leute sagten mir, das sei die Gründung des Monotheismus, aber für mich war es wichtig zu verstehen, warum ein „Höchstes Wesen“ Konkurrenz tolerieren muss. Warum nicht einfach einpacken und fertig. Im Verständnis dessen, was als „Götter“ bezeichnet wird. Ein "Gott" ist jeder Mann, jede Frau, jedes Objekt und sogar jedes mentale Konstrukt, das nicht Ø (Wahrheit) ist. Wenn wir einer Fiktion über uns mentale Macht verleihen, dann gibt Ø dieser Fiktion wirkliche Macht über uns, indem Ø unseren Willen anerkennt.
+Ich hatte eine grundlegende Hürde, die ich zuerst überwinden musste, und diese ergab sich aus einer Studie darüber, was wir als die 10 Gebote kennen und was das große Problem an ihnen war. Ich hatte meine Tändelei mit der Religion, und das war eine Mauer als ich bemerkte dass die Religion das Buch, mit dem sie sich so beschäftigt, oft nicht versteht.
+
+
+Ich schaute auf das Erste Gebot um zu sehen, ob ich es verletzte: "Du sollst keine anderen Götter neben mir haben!". Die Leute sagten mir, das sei die Gründung des Monotheismus, aber für mich war es wichtig zu verstehen, warum ein „Höchstes Wesen“ Konkurrenz tolerieren muss. Warum nicht einfach einpacken und fertig. Im Verständnis dessen, was als „Götter“ bezeichnet wird. Ein "Gott" ist jeder Mann, jede Frau, jedes Objekt und sogar jedes mentale Konstrukt, das nicht Ø (Wahrheit) ist. Wenn wir einer Fiktion über uns mentale Macht verleihen, dann gibt Ø dieser Fiktion wirkliche Macht über uns, indem Ø unseren Willen anerkennt.
 
 
 #### Warte!
@@ -369,9 +372,7 @@ Ich hatte eine grundlegende Hürde, die ich zuerst überwinden musste, und diese
 #### Ja!
 
 
-Ich begann mich mich sehr für Dinge, mit denen ich das \[Dinge als wahr annehmen sie über Ø stellen\]  machte, zu interessieren. Dies führte zu einem weiteren wichtigen Aspekt des Rechts. Wenn Du um Erlaubnis bittest, wird   
-gesetzlich[^3]  davon ausgegangen, dass Du eine Erlaubnis benötigst. Das musste ich sofort streichen. 
-Bald begann ich fast magisch, all die Fiktionen zu entdecken, denen ich Macht über mich gab. 
+Ich begann mich mich sehr für Dinge, mit denen ich das \[Dinge als wahr annehmen sie über Ø stellen\]  machte, zu interessieren. Dies führte zu einem weiteren wichtigen Aspekt des Rechts. Wenn Du um Erlaubnis bittest, wird  gesetzlich[^3]  davon ausgegangen, dass Du eine Erlaubnis benötigst. Das musste ich sofort streichen. Bald begann ich fast magisch, all die Fiktionen zu entdecken, denen ich Macht über mich gab. 
 Sobald ich das bemerkte, verloren sie die Macht.
 
 Dies führte zu einer Untersuchung darüber was Souveränität ist,  und wie Souveränität mit Verantwortung, Rechten und dem Vertragsrecht zusammenhängt. Später entdeckte ich, dass ein Großteil meiner Interaktion im Universum auf Vertrag beruhte und ich keine konstruktive Definition dafür hatte, was ein Naturgesetzvertrag ist oder wie ein Vertrag Macht und Kraft in der physischen Auswirkung manifestiert.
@@ -416,7 +417,7 @@ Wenn man durch die Folgen einer Tat  jemanden zum Opfer macht, wird Macht gegen 
 
 ### Das natürliche Vertragsrecht 
 
-Alle echten durchsetzbaren Verträge enthalten 🔴 diese vier folgenden Elemente. Vollstreckbar bedeutet, dass Macht bei der Ausführung von Verträgen eingesetzt wird und Dich  oder Andere an Geschäftsbedingungen bindet. Wenn einem vermeintlichen Vertrag eines oder mehrere davon fehlen, wird er von Ø nicht durchgesetzt, es sei denn, Du bist unwissend!
+Alle echten durchsetzbaren Verträge müssen !   enthalten diese vier folgenden Elemente. Vollstreckbar bedeutet, dass Macht bei der Ausführung von Verträgen eingesetzt wird und Dich  oder Andere an Geschäftsbedingungen bindet. Wenn einem vermeintlichen Vertrag eines oder mehrere davon fehlen, wird er von Ø nicht durchgesetzt, es sei denn, Du bist unwissend!
 
 Ein Naturrechtsvertrag muss enthalten:
 
@@ -424,7 +425,9 @@ Ein Naturrechtsvertrag muss enthalten:
     
 2. Eine Annahme - Ein anderer muss das Angebot oder das Geschäft annehmen  
     
-3. Ein Austausch von echter Gegenleistung - Man tut etwas, wenn ein anderer etwas tut oder etwas für etwas  anderes hergibt.  Fiktion zählt nicht als real, und das darf man nicht vergessen! Dies war der Schlüssel zur staatlichen, religiösen und wirtschaftlichen Versklavung. Die Täter können dies im Naturrecht nicht wirklich ohne unangenehme Folgen tun, also schaffen sie eine fiktive Einheit oder eine "Fiktion des Rechts“, die dies 🔴 kann. Das Problem ist, dass wir verwirrt sind und denken, dass diese Fiktionen in den Köpfen der Menschen real sind und echte Macht über uns haben. Autsch!  
+3. Ein Austausch von echter Gegenleistung - Man tut etwas, wenn ein anderer etwas tut oder etwas für etwas  anderes hergibt.  Fiktion zählt nicht als real, und das darf man nicht vergessen! Dies war der Schlüssel zur staatlichen, religiösen und wirtschaftlichen Versklavung. Die Täter können dies im Naturrecht nicht wirklich ohne unangenehme Folgen tun, also schaffen sie eine fiktive Einheit oder eine "Fiktion des Rechts“, die dies (Austausch von echter Gegenleistung) kann. 
+
+Das Problem ist, dass wir verwirrt sind und denken, dass diese Fiktionen in den Köpfen der Menschen real sind und echte Macht über uns haben. Autsch!  
     
 4. Vorliegen korrespondierender Willenserklärungen (Meeting of the Minds) - Ein Vertrag muss zwischen zwei Menschen geschlossen werden. Ein Stück Papier ist nur eine Dokumentation und an sich kein Vertrag, auch wenn darauf hingewiesen wird, dass dies der Fall ist. Ø hat einen Verstand und daher die Macht, einen Vertrag abzuschließen, und manifestiert die Macht der Durchsetzung. Legale Fiktionen haben keinen Verstand!  
     
