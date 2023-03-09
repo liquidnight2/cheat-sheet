@@ -5,7 +5,7 @@
 
 
 # Noch nicht fertig !!
-### 	This is not finished yet!	7 issues.
+### 	This is not finished yet!	3 issues.
 
 <p>	
 <!--  <img src="https://cdn.discordapp.com/attachments/1058431906544373810/1060363134000431164/WIP_A.png" width="200" align="right" />    --> 
@@ -76,7 +76,7 @@ Nach einer intensiven Ausbildung in Wissenschaft und später in Religion und etw
 
 Ich hielt alles, was mir gesagt wurde, entweder für eine absichtliche Lüge oder für verdächtig. Ich kam zu dem Schluss, dass ich nur glauben würde, was ich mir selbst zeigen und beweisen konnte. Anfangs wusste ich wenig und es zeigte sich. Ich passte nicht hinein und hatte keine Geduld für Menschen. Für mich waren sie Objekte, einfach  Dinge in meinen Experimenten. Ich lehnte die Standardmodell-Kosmologie ab und sah Schummel-Faktoren in der Physik als Produkt intellektueller Faulheit an. Ich habe meine eigenen Grundannahmen zurückgewiesen. Ironie und Zufall empfand ich jedoch als lehrreich und etwas, das man genau beobachten sollte.
 
-Jedes Mal wenn ich auf eine Barriere traf, fing ich von vorne an. Nur das akzeptieren, was Sinn machte und mir direkt vorgeführt wurde. Es dauerte eine Weile. Ich entfremdete mich von meinen Freunden, meiner Familie und der Gesellschaft. Langsam habe ich einen Rahmen zusammengestellt, den ich in meiner Lebenserfahrung immer wieder getestet und getestet habe. Die Meisten dachten, ich sei verrückt. Ich war verrückt, das heißt, bis 4:44 Uhr morgens am 4. Juli 2006. Ein „Ereignis“ passierte, das aus einem siebenjährigen Studium des Gesetzes resultierte. Nicht das, was Anwälte praktizieren, sondern das Naturgesetz[^2]. Dieses hat eine echte Potenz wie Feuer brennt oder so wie  Dinge herunterfallen, wenn sie fallen gelassen werden. Für mich war Verfahrensrecht Kauderwelsch. Ich lehnte die "Theorie des Rechtspositivismus" als etwas ab, das nur Idioten glauben würden.
+Jedes Mal wenn ich auf eine Barriere traf, fing ich von vorne an. Nur das akzeptieren, was Sinn machte und mir direkt vorgeführt wurde. Es dauerte eine Weile. Ich entfremdete mich von meinen Freunden, meiner Familie und der Gesellschaft. Langsam habe ich einen Rahmen zusammengestellt, den ich in meiner Lebenserfahrung immer wieder getestet und getestet habe. Die Meisten dachten, ich sei verrückt. Ich war verrückt, das heißt, bis 4:44 Uhr morgens am 4. Juli 2006. Ein „Ereignis“ passierte, das aus einem siebenjährigen Studium des Gesetzes resultierte. Nicht das, was Anwälte praktizieren, sondern das Naturgesetz[^2]. Dieses hat eine echte Macht wie Feuer brennt oder so wie  Dinge herunterfallen, wenn sie fallen gelassen werden. Für mich war Verfahrensrecht Kauderwelsch. Ich lehnte die "Theorie des Rechtspositivismus" als etwas ab, das nur Idioten glauben würden.
 
 Bei diesem "Ereignis" erlebte ich zum ersten Mal: ​​keine Sorge, keine Angst. Ich genoss Frieden, Liebe und vor allem: Klarheit. Nachdem ich das Naturgesetz gelernt hatte, entdeckte ich, dass das Universum ein freundlicher Ort ist. Ich erlangte eine neue Fähigkeit, die es mir ermöglichte, Dinge auf eine neue Weise wahrzunehmen, die meine fünf Sinne nicht erforderte. Ich lernte wahrzunehmen, dass die Natur eine Intelligenz und ein Timing hat. Die Natur ist das, was alle Macht im Universum manifestiert, und es ist wichtig zu wissen wie sie funktioniert, oder man kann nicht wissen warum Dinge passieren. Diese Unkenntnis des Naturgesetzes ist der Grund, warum wir Ereignisse in unserem Leben oft dem Zufall, Glück, Wahrscheinlichkeit und Chaos zuschreiben.
 
@@ -448,16 +448,7 @@ Das Problem ist, dass wir verwirrt sind und denken, dass diese Fiktionen in den 
     
 3. ALLE VERTRÄGE SIND FREIWILLIG! Du kannst nicht zu einem Vertrag gezwungen werden. Eine erzwungene Vereinbarung wird von  Ø ignoriert, und es wird keine Macht aufgestellt, um die Bedingungen durchzusetzen. Du kannst nicht gezwungen werden, Deine Rechte aufzugeben, aber Du kannst Dich durch Verwirrung dazu bringen, Deine Rechte freiwillig aufzugeben (das heißt sich selbst zu versklaven). Praktischerweise wird uns das nicht beigebracht.  
     
-4. BEI ALLEN VERTRÄGEN MUSS DER KÄUFER AUFPASSEN! Du bist dafür verantwortlich, zu wissen worauf Du Dich einlässt.
-
-
-🔴 !!!
- Sie müssen über angemessene Mittel verfügen, um die Vertragsbedingungen zu erfahren.
- 
- Du musst über angemessene Mittel verfügen, die Vertragsbedingungen zu erfahren, damit der Vertrag entsteht. 
--!!!
- 
-  Dies ist ein weiterer Weg 🔴 den wir an unsere Ignoranz verlieren. Sie 🔴 sagen uns selten, was die Bedingungen sind, und wir fragen selten!  
+4. BEI ALLEN VERTRÄGEN MUSS DER KÄUFER AUFPASSEN! Du bist dafür verantwortlich, zu wissen worauf Du Dich einlässt.   Du musst über angemessene Mittel verfügen, die Vertragsbedingungen zu erfahren, damit der Vertrag entsteht.  Dies ist ein weiterer Weg über   den wir  unsere Ignoranz verlieren.   Sie  sagen uns selten, was die Bedingungen sind, und wir fragen selten!  
     
 5. Wenn Du  Dich nach geltendem Recht so verhältst, als ob ein Vertrag in Kraft wäre, wird davon ausgegangen (sogar von Ø), dass tatsächlich ein Vertrag besteht. Wenn Du Dich vertragsgebunden verhältst, erkennt Ø die Situation als vertragsgebunden an. Es bedeutet nicht, dass ein tatsächlicher Vertrag in Kraft ist. Das bedeutet, dass es so aussieht, als wäre ein Vertrag in Kraft, weil Du es nicht besser weißt. Wenn es wie eine Ente watschelt, wie eine Ente quakt und wie eine Ente aussieht, dann ist es eine Ente. Bildung ist unser Heilmittel.
 
@@ -484,7 +475,7 @@ Der Verlauf des Prozesses wird zunächst so beschrieben, wie ihn der typische Ma
 
 #### Schritt Eins:
 
-Eigentlich wurde das vertragliche Angebot für die Souveränität schon vor langer Zeit von Dir 🔴 gemacht, aber zu wissen dass es Dir möglich war, diese Souveränität überhaupt anzunehmen ist eine andere Sache.
+Eigentlich wurde das vertragliche Angebot für die Souveränität schon vor langer Zeit von Dir 🔴 gemacht, aber zu wissen dass es Dir möglich war diese Souveränität überhaupt anzunehmen, ist eine andere Sache.
 
 Die Tatsache, dass Du dieser Wahrheit jetzt ausgesetzt bist, bedeutet dass Du in der richtigen Position bist. Wir hatten in diesem bestimmten Zeitalter Lektionen zu lernen, also wurde dieser Prozess im Laufe der Jahrhunderte hier und da einigen wenigen Menschen offenbart, da er notwendig war und einen Zweck erfüllte. Deine Bereitschaft ist eine Hürde, die Du in einigen Fällen überwinden musst. Um den Prozess zu starten, müsst Du also einfach in Gedanken entscheiden, das Angebot anzunehmen. Wenn man sehen möchte, ob dies wahr ist und eine Bestätigung haben möchte, dass dies tatsächlich ein bewusster Lernprozess ist, braucht man nur um Bestätigung der Wahrheit zu bitten, und Ø wird sie nach Bedarf liefern, aber achte genau darauf.  Du solltest erkennen können, wann die Souveränität gewährt wird, da es sich anfühlt als würde eine Last von Dir abfallen. Du kannst vor Glück lachen oder weinen und ein warmes Gefühl kann Dich überfluten. Manchmal wird es von einem nebligen, nebelartigen Erlebnis begleitet. So oder so wirst Du "es mit Gewissheit wissen".
 
@@ -502,7 +493,7 @@ Wenn der Souveränitätsvertrag akzeptiert wird, erlebst Du oft einen Strom verg
 Der Schlüssel liegt darin, zu erkennen, warum das Bild, Konzept oder Ereignis wichtig ist -  Was ist der Zweck dessen was passiert, oder warum wird es Dir gezeigt? Es gibt immer für alles einen Grund. Du musst es herausfinden. Wenn Du nicht weiterkommst, musst Du um weitere Klärung bitten, und dann wird es wahrscheinlich in Träumen oder im wirklichen Leben durch reale Erfahrungen demonstriert. Hier werden Interaktionen wichtig, da Du Dein Ereignis mit jemandem mitteilen kannst der es objektiv betrachten kann, ohne das Ereignis mit einer persönlichen Voreingenommenheit zu verdrehen.
 
 
-Dieser Prozess des Lösens des Elements, auf das Deine bewusste Aufmerksamkeit gelenkt wird, wiederholt sich immer wieder, bis der ganze Zweck für alle bedeutungsvollen Ereignisse in Deinem Leben bestimmt ist. Es beginnt einfach mit neugierigen Fragen über das eigene Leben, die beantwortet werden. Dann bewegt sich der Prozess, um die Natur von unangenehmeren Ereignissen zu enthüllen. Ein Hauptziel des Prozesses ist es langsam Vertrauen in den Prozess und insbesondere in Ø zu entwickeln und dann mehr Mut zu entwickeln, sich mit immer unbequemeren "dunklen Lebensinhalten" auseinanderzusetzen. Dir werden Dinge offenbart, an Du Dich vorher nicht erinnern konntest,  🔴 weil Du neuen Mut hast, das Erlebte zu verarbeiten. Es ist ein bewusster Prozess, der Dich im angenehmsten Tempo durch Deine Geschichte bewegt.
+Dieser Prozess des Lösens des Elements, auf das Deine bewusste Aufmerksamkeit gelenkt wird, wiederholt sich immer wieder, bis der ganze Zweck für alle bedeutungsvollen Ereignisse in Deinem Leben bestimmt ist. Es beginnt einfach mit neugierigen Fragen über das eigene Leben, die beantwortet werden. Dann bewegt sich der Prozess, um die Natur von unangenehmeren Ereignissen zu enthüllen. Ein Hauptziel des Prozesses ist es langsam Vertrauen in den Prozess und insbesondere in Ø zu entwickeln und dann mehr Mut zu entwickeln, sich mit immer unbequemeren "dunklen Lebensinhalten" auseinanderzusetzen. Dir werden Dinge offenbart, die zu erinnern Du vorher zu verängstigt warst,  weil Du neuen Mut hast, das Erlebte zu verarbeiten. Es ist ein bewusster Prozess, der Dich im angenehmsten Tempo durch Deine Geschichte bewegt.
 
 
 
@@ -563,9 +554,9 @@ Der Vertrag besteht auf Dauer. Denn wenn "Du" nicht „bedingungslos vertraust�
 	Natural Law: Gesetze auf der Ebene der Seelen <br/>
 	"Naturgesetz" aus dem 16. Jh. (Kampf aller gegen alle, der Stärkere gewinnt, materialistische Weltsicht)  ist nicht gemeint.
 	
-[^3]:	Naturgesetz / Gottes Gesetz / Natural Law / Menschenverstand / Common Law
- 	
- <br/>
+[^3]:	Naturgesetz / Gottes Gesetz / Natural Law / Menschenverstand / Common Law  <br/>
 
+
+<br/>  <br/>
 <hr/>
 
