@@ -4,11 +4,11 @@
 
 
 
-# Noch nicht fertig !!
-### 	This is not finished yet!	3 issues.
 
 <p>	
 <!--  <img src="https://cdn.discordapp.com/attachments/1058431906544373810/1060363134000431164/WIP_A.png" width="200" align="right" />    --> 
+
+Next Step: Proof Reading
 
 <img src="http://1.bp.blogspot.com/-JaSe4eMP4Wc/UAgGb4tBIeI/AAAAAAAAAPw/Fa66_2w2HZ4/s1600/Work_in_progress.png" width="200" align="right" />
 
@@ -475,7 +475,7 @@ Der Verlauf des Prozesses wird zunächst so beschrieben, wie ihn der typische Ma
 
 #### Schritt Eins:
 
-Eigentlich wurde das vertragliche Angebot für die Souveränität schon vor langer Zeit von Dir 🔴 gemacht, aber zu wissen dass es Dir möglich war diese Souveränität überhaupt anzunehmen, ist eine andere Sache.
+Eigentlich wurde das vertragliche Angebot für die Souveränität schon vor langer Zeit von Dir (der Seele) gemacht, aber zu wissen dass es Dir möglich war diese Souveränität überhaupt anzunehmen, ist eine andere Sache.
 
 Die Tatsache, dass Du dieser Wahrheit jetzt ausgesetzt bist, bedeutet dass Du in der richtigen Position bist. Wir hatten in diesem bestimmten Zeitalter Lektionen zu lernen, also wurde dieser Prozess im Laufe der Jahrhunderte hier und da einigen wenigen Menschen offenbart, da er notwendig war und einen Zweck erfüllte. Deine Bereitschaft ist eine Hürde, die Du in einigen Fällen überwinden musst. Um den Prozess zu starten, müsst Du also einfach in Gedanken entscheiden, das Angebot anzunehmen. Wenn man sehen möchte, ob dies wahr ist und eine Bestätigung haben möchte, dass dies tatsächlich ein bewusster Lernprozess ist, braucht man nur um Bestätigung der Wahrheit zu bitten, und Ø wird sie nach Bedarf liefern, aber achte genau darauf.  Du solltest erkennen können, wann die Souveränität gewährt wird, da es sich anfühlt als würde eine Last von Dir abfallen. Du kannst vor Glück lachen oder weinen und ein warmes Gefühl kann Dich überfluten. Manchmal wird es von einem nebligen, nebelartigen Erlebnis begleitet. So oder so wirst Du "es mit Gewissheit wissen".
 
@@ -499,7 +499,8 @@ Dieser Prozess des Lösens des Elements, auf das Deine bewusste Aufmerksamkeit g
 
 Es muss jedoch anerkannt werden dass es einen Grund gibt, warum Du diesen unangenehmen Erinnerungen und Ereignissen überhaupt nicht begegnet bist. Die Ereignisse können beängstigend sein, selbst wenn der Prozess ordnungsgemäß abläuft. Es hilft zu wissen dass es wichtig und notwendig ist, zur Beseitigung des emotionalen Stigmas führt und getan wird, damit Du vor allem wahrgenommenen Schaden geschützt bist.
 
-Der Vertrag ist ein "Medium des  Wandels". Sobald Du den Prozess durchlaufen hast, wirst Du wissen, was wirklich passiert ist. Du hast Dir erlaubt aufzuwachen und verantwortlich zu sein. Der Vertrag ist eine fassbare Hilfe oder ein Mechanismus, der Dir dabei hilft. Du hast hohe Ansprüche, und Du wirst es   🔴  nicht zulassen bis Du weißt, dass Du bereit bist. Das Naturgesetz wird dann ein inhärenter Aspekt Deiner Erfahrung sein, da alle verantwortlichen Menschen das Gesetz kennen.
+Der Vertrag ist ein "Medium des  Wandels". Sobald Du den Prozess durchlaufen hast, wirst Du wissen, was wirklich passiert ist. Du hast Dir erlaubt aufzuwachen und verantwortlich zu sein. Der Vertrag ist eine fassbare Hilfe oder ein Mechanismus, der Dir dabei hilft. Du hast hohe Ansprüche, und Du wirst es (Aufwachen) nicht zulassen bis Du weißt, dass Du bereit bist. Das Naturgesetz wird dann ein inhärenter Aspekt Deiner Erfahrung sein, da alle verantwortlichen Menschen das Gesetz kennen.
+
 
 
 ### Dies kann Dir helfen zu erkennen was Du getan hast:
@@ -510,7 +511,7 @@ Du hast Dich selbst „ausgetrickst“, um „hierher“ zu gelangen, und es erf
 
 Das ist es was  Du erreicht hast.
 
-Du hattest  🔴  einen speziell entworfenen komplizierten und komplexen Käfig geschaffen, der Grenzen und Begrenzungen festlegte und eine sehr schmale Tür nach draußen lässt die von innen getarnt ist.
+Du hattest einen speziell entworfenen komplizierten und komplexen Käfig geschaffen, der Grenzen und Begrenzungen festlegte und eine sehr schmale Tür nach draußen lässt die von innen getarnt ist.
 
 Dein Bewusstsein trat in diesen Käfig und ließ das Meiste von Dir draußen.
 
