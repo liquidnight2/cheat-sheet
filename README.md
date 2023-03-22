@@ -38,9 +38,9 @@ Das wichtigste zuerst! Man muss sich darüber im Klaren sein, wie begrenzt die g
 
 <p align="center">
 **Der Spickzettel Mark V ist viel wirkungsvoller, wenn Du ihn Dir selbst laut vorliest, als ihn einfach still zu lesen oder dir von jemandem vorlesen lässt.**
+</p>
 
 ### Warum?
-</p>
 
 
 Die Klänge, die die Worte erzeugen, und was sie in dir hervorrufen, sind weitaus mächtiger als die Definition der Worte. Die linke Gehirnhälfte oder das Ego kommuniziert mit geschriebener und gesprochener Sprache. Die rechte Gehirnhälfte oder unser wahres Selbst kommuniziert über Symbole und die Ereignisse, die wir in unserer Realität wahrnehmen. Schlimmer noch, die linke Gehirnhälfte (das Ego) allein hat nicht die sensorische Fähigkeit, das Selbst zu erkennen oder zu messen. Es ist völlig blind für das "Ich". Das Ego muss sich auf seine Interpretation seiner Gefühle und den Grund für Gedanken und Ereignisse verlassen, die in seiner Umgebung auftreten, um zu verstehen, was das Ich versucht zu kommunizieren. Diese Kommunikationsversuche werden zunächst vom Ego als „Synchronizitäten“ oder „Zufälle“ erkannt. Man muss akzeptieren, dass das Selbst tatsächlich versucht, diese Kommunikation herzustellen.
