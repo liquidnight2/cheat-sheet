@@ -3,16 +3,7 @@
 ( [Cheat Sheet Mark V by Roage](http://www.roage.com/res/html/CheatSheetMarkV.html) translated by [liquidnight2](https://github.com/liquidnight2/cheat-sheet) )
 
 
-
-
-<p>	
-
-<img src="http://1.bp.blogspot.com/-JaSe4eMP4Wc/UAgGb4tBIeI/AAAAAAAAAPw/Fa66_2w2HZ4/s1600/Work_in_progress.png" width="200" align="right" />
-
-</p> <br/> <br/>
-
-
-<br/> <br/> <br/>  <br/><br/> <br/> <br/>  <br/>
+<br/> <br/> <br/>  <br/><br/>
 <hr break="all"/>
 
 
@@ -20,7 +11,7 @@
 <br/> <br/> 
 <hr break="all"/>
 
-
+<br/> <br/>  <br/>
 
 ### Vorwort
 
