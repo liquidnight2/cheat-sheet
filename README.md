@@ -36,9 +36,10 @@ Roage
 
 Das wichtigste zuerst! Man muss sich darüber im Klaren sein, wie begrenzt die gesprochene und geschriebene Sprache ist, wenn man Konzepte in Beziehung setzt, mit denen Menschen ihr ganzes Leben lang keine Erfahrung gemacht haben.
 
-<p align="center">
+
 **Der Spickzettel Mark V ist viel wirkungsvoller, wenn Du ihn Dir selbst laut vorliest, als ihn einfach still zu lesen oder dir von jemandem vorlesen lässt.**
-</p>
+
+
 
 ### Warum?
 
