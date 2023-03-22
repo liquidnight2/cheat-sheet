@@ -113,6 +113,8 @@ Bist Du glücklich? Möchteest Du lieber Recht haben als glücklich sein? Wenn D
 
 Selbst wenn Du es jetzt nicht glaubst, tue  einfach so als würdest Du Dein Leben als eine interaktive Lektion betrachten, die Dich zu diesem Zeitpunkt genau jetzt brachte. Bald wirst Du dabei sein, Dir nichts mehr vorzutäuschen.
 
+<p align="center">Genieße es ...</p>
+
 
 ## Ein neues Symbol: Ø
 
