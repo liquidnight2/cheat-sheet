@@ -6,9 +6,6 @@
 
 
 <p>	
-<!--  <img src="https://cdn.discordapp.com/attachments/1058431906544373810/1060363134000431164/WIP_A.png" width="200" align="right" />    --> 
-
-Next Step: Proof Reading
 
 <img src="http://1.bp.blogspot.com/-JaSe4eMP4Wc/UAgGb4tBIeI/AAAAAAAAAPw/Fa66_2w2HZ4/s1600/Work_in_progress.png" width="200" align="right" />
 
@@ -19,7 +16,7 @@ Next Step: Proof Reading
 <hr break="all"/>
 
 
-<img src="http://www.roage.com/img/hg.png" width="300"  />
+<img src="http://www.roage.com/img/hg.png" width="300"   align="center" />
 <br/> <br/> 
 <hr break="all"/>
 
@@ -39,9 +36,12 @@ Roage
 
 Das wichtigste zuerst! Man muss sich darüber im Klaren sein, wie begrenzt die gesprochene und geschriebene Sprache ist, wenn man Konzepte in Beziehung setzt, mit denen Menschen ihr ganzes Leben lang keine Erfahrung gemacht haben.
 
+<p align="center">
 **Der Spickzettel Mark V ist viel wirkungsvoller, wenn Du ihn Dir selbst laut vorliest, als ihn einfach still zu lesen oder dir von jemandem vorlesen lässt.**
 
 ### Warum?
+</p>
+
 
 Die Klänge, die die Worte erzeugen, und was sie in dir hervorrufen, sind weitaus mächtiger als die Definition der Worte. Die linke Gehirnhälfte oder das Ego kommuniziert mit geschriebener und gesprochener Sprache. Die rechte Gehirnhälfte oder unser wahres Selbst kommuniziert über Symbole und die Ereignisse, die wir in unserer Realität wahrnehmen. Schlimmer noch, die linke Gehirnhälfte (das Ego) allein hat nicht die sensorische Fähigkeit, das Selbst zu erkennen oder zu messen. Es ist völlig blind für das "Ich". Das Ego muss sich auf seine Interpretation seiner Gefühle und den Grund für Gedanken und Ereignisse verlassen, die in seiner Umgebung auftreten, um zu verstehen, was das Ich versucht zu kommunizieren. Diese Kommunikationsversuche werden zunächst vom Ego als „Synchronizitäten“ oder „Zufälle“ erkannt. Man muss akzeptieren, dass das Selbst tatsächlich versucht, diese Kommunikation herzustellen.
 
