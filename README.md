@@ -371,13 +371,6 @@ Ich hatte eine grundlegende Hürde, die ich zuerst überwinden musste, und diese
 
 Ich schaute auf das Erste Gebot um zu sehen, ob ich es verletzte: "Du sollst keine anderen Götter neben mir haben!". Die Leute sagten mir, das sei die Gründung des Monotheismus, aber für mich war es wichtig zu verstehen, warum ein „Höchstes Wesen“ Konkurrenz tolerieren muss. Warum nicht einfach einpacken und fertig. Im Verständnis dessen, was als „Götter“ bezeichnet wird. Ein "Gott" ist jeder Mann, jede Frau, jedes Objekt und sogar jedes mentale Konstrukt, das nicht Ø (Wahrheit) ist. Wenn wir einer Fiktion über uns mentale Macht verleihen, dann gibt Ø dieser Fiktion wirkliche Macht über uns, indem Ø unseren Willen anerkennt.
 
-<p align="center">
-	<b>Warte!</b><br/>
-	
-	<b>Bedeutete das, dass es meine Wahl war?!</b> <br/>
-	
-	<b>Ich habs geschafft?!</b> <br/>
-</p>
 
 #### Warte!
 
