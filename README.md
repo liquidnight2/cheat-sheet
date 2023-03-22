@@ -2,16 +2,14 @@
 
 ( [Cheat Sheet Mark V by Roage](http://www.roage.com/res/html/CheatSheetMarkV.html) translated by [liquidnight2](https://github.com/liquidnight2/cheat-sheet) )
 
+<br/> <br/> 
 
-<br/> <br/> <br/>  <br/><br/>
-<hr break="all"/>
+<p align="center"><img src="http://www.roage.com/img/hg.png" width="300"   align="center" /> </p>
 
-
-<img src="http://www.roage.com/img/hg.png" width="300"   align="center" />
 <br/> <br/> 
 <hr break="all"/>
 
-<br/> <br/>  <br/>
+<br/> <br/> 
 
 ### Vorwort
 
