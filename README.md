@@ -4,11 +4,11 @@
 
 <br/> <br/> 
 
-<p align="center"><img src="http://www.roage.com/img/hg.png" width="300"   align="center" /> </p>
+<p align="center"><img src="https://raw.githubusercontent.com/liquidnight2/cheat-sheet/main/chalice-inverted.jpg" width="300"   align="center" /> </p>
 
 <br/> <br/> 
 <hr break="all"/>
-<!-- https://www.pdfforge.org/online/en/markdown-to-pdf --> 
+<!-- https://www.pdfforge.org/online/en/markdown-to-pdf  Style: Github --> 
 <br/> <br/> 
 
 ### Vorwort
