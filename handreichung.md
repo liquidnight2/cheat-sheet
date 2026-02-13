@@ -84,6 +84,6 @@ Die Akteure des Gewaltsystems ("staat") stehen per Gottes Gesetz unter den spiri
 
 
 ## Verweise
-[evolveconsciousness.org](https://evolveconsciousness.org/universal-cosmic-natural-moral-law/)
-
+* [evolveconsciousness.org](https://evolveconsciousness.org/universal-cosmic-natural-moral-law/)
+* [joedubs.com](https://joedubs.com/government-is-mind-control-illusion-of-authority/)
 
