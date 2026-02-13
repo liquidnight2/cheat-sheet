@@ -41,6 +41,7 @@ Auf der oberen (mentalen) Ebene sagen sie dazu "Eigentum" und "eignen", auf der 
 Diese Trennung der oberen mentalen Ebene (Wille, Titel, Anspruch) von der unteren Ebene (Besitzen und Verteidigen) nutzen die Bösen nun für zwei Funktionen:
 1. ALLEN Menschen ALLES Land wegnehmen ("Staat", "Königreich", "Kapitalismus")
 2. die Landhabenden dazu zu instrumentieren, allen Nicht-Landhabenden systematisch immer mehr Land wegzunehmen.
+
 Diese Funktion wird bewerkstelligt durch eine Stellvertreter-Mechanik: 
 1. Herbeiführen einer Äquivalenz von Landstück zu Geldmenge (Preis auf Land, Geld als Äquivalent zu Landfläche)
 2. Konzentration des Geldes bei extrem wenigen Menschen, die darüberhinaus noch eher psychopathische Eigenschaften haben
