@@ -1,4 +1,4 @@
-# Handreichung für die Erlösung
+# Handreichung für die Erlösung (V2)
 
 ##  Definitionen
 1. Mensch : Wesen bestehend aus Körper, Geist, Seele.
