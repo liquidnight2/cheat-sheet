@@ -68,7 +68,7 @@ Die Machtausbreitung über die Erde sieht im Altsystem so aus, dass es ein einzi
 
 ## Der Neu-Zustand
 
-Die Topologie der Macht über die Fläche der Erde wird anders aussehen: Freie Gemeinden bieten kleinere Zonen der Befriedung, während draußen genug freie Fläche bleibt, auf der Andersdenkende (evtl. Kriminelle)   verschiedenster Art ihr Dasein versuchen dürfen.
+Die Topologie der Macht über die Fläche der Erde wird anders aussehen: Freie Gemeinden bieten kleinere Zonen der Befriedung, während draußen genug freie Fläche bleibt, auf der Andersdenkende (evtl. Kriminelle)   verschiedenster Art ihr Dasein versuchen dürfen. Hierzu zählen auch die  spirituell toten Zonen "Stadt" die die "Republik"-Gläubigen bereits errichtet haben.
 
 Wir bilden Gemeinden, die sich von dem Altsystem unterscheiden:
 1. die  Republik-Gemeinden sind  Firmen im Gewaltsystem die  Gewalt gegen alle Insassen ausführen ("Steuern"), und die die Landraubfunktion weiter ausführen (Markt auf Land). Durch diese Funktion ist deren Währung (Euro, Dollar, usw.)  ein kriminelles Instrument.
@@ -80,8 +80,10 @@ Als Werkzeug hierfür benutzen wir die Verfassung der Gemeinde, in der wir die F
 
 Auf der neuen heiligen Fläche verbieten wir das Fürsprechen für die Landraubfunktion ("Königreich" "Staat") als auch für die Funktion der Gier-Auf-Land.  Wir haben verstanden dass diese Funktionen in das Reich der Gewalttäter gehört (die Zombie-Zone der spirituell Toten).
 
-Die Akteure des Gewaltsystems ("staat") stehen per Gottes Gesetz unter den spirituell lebendigen Menschen der neuen Gemeinde. Diese spirituell toten Akteure werden nur noch aus zwei Klassen bestehen: Opfern der Psychopathen (jeder der sich in die untere Position des Steuerzahlers begibt),   und  Psychopathen (diejenigen die in der Gewaltpyramide aufsteigen und die man ehrlicherweise als nichtmenschliche Zweibeiner bezeichnen sollte). Beide Klassen bewegen sich  hin zu toter Materie  welche in  'smart cities' die den Rest der Funktion mit massig sinnloser Kommunikation abfeiern darf.
+Die Akteure des Gewaltsystems ("staat") stehen per Gottes Gesetz unter den spirituell lebendigen Menschen der neuen Gemeinde. Diese spirituell toten Akteure werden nur noch aus zwei Klassen bestehen: Opfern der Psychopathen (jeder der sich in die untere Position des Steuerzahlers begibt),   und  Psychopathen (diejenigen die in der Gewaltpyramide aufsteigen und die man ehrlicherweise als nichtmenschliche Zweibeiner bezeichnen sollte). Beide Klassen bewegen sich  hin zu toter Materie  welche in  'smart cities' die den Rest der Funktion mit massig sinnloser Kommunikation und Tyrannei-Durch-Komplexität abfeiern darf.
 
 
+## Verweise
+[evolveconsciousness.org](https://evolveconsciousness.org/universal-cosmic-natural-moral-law/)
 
 
