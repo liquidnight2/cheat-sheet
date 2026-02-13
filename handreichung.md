@@ -24,6 +24,7 @@
         Umgangsssprachlich: Wille zu einer Aktion die keinem anderen Menschen schadet.
 2. Gesetz der Anziehung:  Die Energie die  ein beseeltes Wesen aussendet, ist die Energie die zu ihm zurückkommt. 
 3. Souverän : "super regnum" - ein Mensch der nicht unter der Herrschaft eines Anderen steht.
+4. Gruppenvergewaltigung: Auch wenn sich eine Gruppe (von Landräubern) zusammentut, ist der gemeinschaftlich begangene Landraub  per Definition kein Recht. Diese Aktion (Land besitzen um es allen anderen wegzunehmen) bleibt ein Verbrechen.
 
 ##  Der Alt-Zustand
 Der jetzige Zustand in der menschlichen Gesellschaft ist einer der Versklavung. Der einzelne Mensch, die 99,99%, besitzt kein eigenes Land. Da der einzelne kein Land besitzt, muss er die Lebenszeit auf dem Land eines anderen verbringen und muss sich daraufhin unter die Diktion (Regeln) dieser Anderen begeben.
@@ -57,12 +58,14 @@ Die heilige weibliche Funktion bedeutet dass wir diese Funktion Gewalt-per-Stell
 
 Dadurch dass wir die heilige weibliche Funktion einhalten, haben wir das gottgegebene natürliche Recht auf Selbstverteidigung wieder und dürfen das auch anwenden.
 
+Wir lösen die Psychose auf, die die Menschen erzeugt haben durch das Sprechen des Gewaltsystems ("könig", "staat", Landraub) während sie die Funktion von systematischer Gewalt und einem Weltkrieg nach dem anderen weggelassen haben. Wir sprechen Verben wieder in aktiver Form und bezeichnen die menschlichen Akteure wieder die einen Willen voranbringen.
+
 Wir dürfen uns weder unter die Sprecher des Gewaltsystems unterwerfen, noch dürfen wir die Gewaltfunktion Landraub aufrufen. Wir kommunizeren dass diese legalen Fiktionen "Person" "Papst" "König" nie existierten, sondern dass die Gläubigen hieran eine mentale Schwäche ausdrückten.  Des weiteren kommunizieren wir dass wir die Landraubfunktion "Königreich", "Staat", Kapitalismus und Gier-auf-Land (Markt-auf-Land) nicht mehr ausführen.
 
 Daraus erwächst das Verständnis dass ALLE Landtitel unter "Staat" kriminelle Instrumente sind, egal ob sie nun "Bundesland" "Europa" "Landkreis" "Stadt" "Straße" oder  "Grundstück" heißen mögen. Die Gesamtheit dieser Instrumente ist eine Wirkung des Landraubes gegenüber jedem neu inkarnierenden Menschen auf der Erde.
 
 Da die Grundfunktion im System "König" oder "Staat" auf unmoralischer initiativer Gewalt beruht, erkennen wir die Situation dass für die neuen heiligen Menschen keine einzige Information aus dem Altsystem bzw. aus der sozialen Welt des Altsystems mehr sinnvoll ist.   Auf der weiblichen Ebene zeigt sich das bei der äußeren Emotion, die in der Gewaltzone nur noch auf unstetigem und neurotischen Gewohnheiten besteht.
-Auf der männlichen Seite erkennen wir: wer entweder für "Staat" oder für Gier-auf-Land spricht, spricht kriminell gegen den Zuhörer. Der Zuhörer sollte das erkennen und den Sprecher abweisen. 
+Auf der männlichen Seite erkennen wir: wer entweder für "Staat" oder für Gier-auf-Land spricht, spricht kriminell gegen den Zuhörer. Der Zuhörer sollte das erkennen und den Sprecher abweisen.
 
 Die Machtausbreitung über die Erde sieht im Altsystem so aus, dass es ein einziges legales System gibt, dessen gewalttätige Anhänger diese Funktionen über die gesamte Erde ausbreiten.
 
@@ -86,4 +89,5 @@ Die Akteure des Gewaltsystems ("staat") stehen per Gottes Gesetz unter den spiri
 ## Verweise
 * [evolveconsciousness.org](https://evolveconsciousness.org/universal-cosmic-natural-moral-law/)
 * [joedubs.com](https://joedubs.com/government-is-mind-control-illusion-of-authority/)
+* Translated from [roage.com](https://github.com/liquidnight2/cheat-sheet/blob/main/README.md)
 
