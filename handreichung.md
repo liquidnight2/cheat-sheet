@@ -1,5 +1,7 @@
 # Handreichung für die Erlösung (V2)
 
+<!--   pandoc  -f markdown handreichung.md >handreichung.html   -->
+
 ##  Definitionen
 1. Mensch : Wesen bestehend aus Körper, Geist, Seele.
 2. Körper : funktionale fortpflanzungsfähige Materie mit Fleisch und Blut.
