@@ -34,6 +34,20 @@ Gemäß des Gesetzes der Anziehung werden die Menschen die  in einem Leben das G
 Diejenigen Wesen die nicht aus dieser Gewaltspirale hinausgehen, werden immer weniger Verantwortung bekommen, denn sie haben die Verantwortung abgegeben. Sie führen sowohl die toxisch männliche Funktion der Aggression aus (Gewalt per Stellvertreter) als auch die toxisch weibliche Funktion des erdrückenden Umschließens von 8 Milliarden Menschen in eine einzige Gewaltgesellschaft. 
 Sie werden die Restlaufzeit als unfreie Sklaven und Funktionsobjekte auf der Erde weiter laufen. Hierfür haben die jetzigen Führer den Modus von Transhumanismus, Cyborgisierung und "Smart Cities" vorgesehen.
 
+Um das Gewaltsystem einzurichten haben die Bösen (das archetypisch Böse) das Verfahren der Verschleierung (das falsche Wissen/Licht) angewendet, um den Menschen die Funktion des Unrechtes als etwas Sinnvolles erscheinen zu lassen. Das jetzt laufende Böse Macht  führt in Bezug auf Gottes Gesetz  der Ordnungserhaltung sogar einen sinnvollen Job aus: die gewalttätige Masse der Menschen (die 99%, die spirituell Toten) sollen den langsamen Übergang in die belanglose Materie selbst begehen.
+Hierführ "muss" man die Menschen in immer engere Gefängnisse auf der Erde einsperren. Um das zu vollziehen, haben die Bösen den Menschen  die Zuordnung des Benutzens von Land  verwirrt und entlang  der beiden Ebenen (mental und physisch)  zerlegt in unterschiedliche Begriffswelten. 
+Auf der oberen (mentalen) Ebene sagen sie dazu "Eigentum" und "eignen", auf der unteren Ebene (Aktion, Materie, Verteidigung, Körper) sagen sie dazu "besitzen". Deren Kunst war es nun, diese Begriffe so konträr einzusetzen dass die Menschen glauben  "sie hätten" ein Stück Land,  sie aber tatsächlich kein Land haben (im Sinne von Besitzen).
+
+Diese Trennung der oberen mentalen Ebene (Wille, Titel, Anspruch) von der unteren Ebene (Besitzen und Verteidigen) nutzen die Bösen nun für zwei Funktionen:
+1. ALLEN Menschen ALLES Land wegnehmen ("Staat", "Königreich", "Kapitalismus")
+2. die Landhabenden dazu zu instrumentieren, allen Nicht-Landhabenden systematisch immer mehr Land wegzunehmen.
+Diese Funktion wird bewerkstelligt durch eine Stellvertreter-Mechanik: 
+1. Herbeiführen einer Äquivalenz von Landstück zu Geldmenge (Preis auf Land, Geld als Äquivalent zu Landfläche)
+2. Konzentration des Geldes bei extrem wenigen Menschen, die darüberhinaus noch eher psychopathische Eigenschaften haben
+Daraus resultiert dass die Masse der Menschen sich selbst und gegenseitig ALLES Land wegnimmt und sich so weiterhin immer mehr versklavt. 
+
+
+
 ## Der Übergang
 
 Die wenigen Menschen die nun herausgehen, müssen die heilige männliche Funktion Selbstverteidigung und die heilige weibliche Funktion der Nichtaggression benutzen und beide wieder kombinieren.
