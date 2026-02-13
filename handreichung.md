@@ -16,6 +16,7 @@
 14. "Person" : legale Fiktion die benutzt wird um Gewalthierarchie abzubilden.
 15. "Papst", "Präsident", "Polizist", "König" : Attribute für Person, die benutzt werden um Gewalthierarchie zu kommunizieren.
 16. Besitzen : Verb, Über eine Sache Macht ausüben, Verantwortung für die Erhaltung übernehmen, Fähigkeit andere von der Benutzung der Sache auszuschließen.
+17. Natur : aus der alten ägyptischen Tradition kommende Bedeutung von Tieren Pflanzen und die ganze belebte Umgebung  inklusive der ordnungserzeugenden Funktion (Seele). 
 
 
 ## Relationen
@@ -44,8 +45,7 @@ Diese Trennung der oberen mentalen Ebene (Wille, Titel, Anspruch) von der untere
 
 Diese Funktion wird bewerkstelligt durch eine Stellvertreter-Mechanik: 
 1. Herbeiführen einer Äquivalenz von Landstück zu Geldmenge (Preis auf Land, Geld als Äquivalent zu Landfläche)
-2. Konzentration des Geldes bei extrem wenigen Menschen, die darüberhinaus noch eher psychopathische Eigenschaften haben
-Daraus resultiert dass die Masse der Menschen sich selbst und gegenseitig ALLES Land wegnimmt und sich so weiterhin immer mehr versklavt. 
+2. Konzentration des Geldes bei extrem wenigen Menschen, die darüberhinaus noch eher psychopathische Eigenschaften haben. Daraus resultiert dass die Masse der Menschen sich selbst und gegenseitig ALLES Land wegnimmt und sich so weiterhin immer mehr versklavt. 
 
 
 
@@ -53,7 +53,15 @@ Daraus resultiert dass die Masse der Menschen sich selbst und gegenseitig ALLES 
 
 Die wenigen Menschen die nun herausgehen, müssen die heilige männliche Funktion Selbstverteidigung und die heilige weibliche Funktion der Nichtaggression benutzen und beide wieder kombinieren.
 
+Die heilige weibliche Funktion bedeutet dass wir diese Funktion Gewalt-per-Stellvertreter (Sprechen von "König", "Staat") nicht mehr vorstellen, sondern sie von uns weisen. Wir sprechen Macht nur noch über eine kleine beschränkte Fläche auf der Erde, die  wir bei null Quadratmetern anfangen und zum Zwecke des Lebens in einem Modus der Bescheidenheit erweitern.
+
+Dadurch dass wir die heilige weibliche Funktion einhalten, haben wir das gottgegebene natürliche Recht auf Selbstverteidigung wieder und dürfen das auch anwenden.
+
+Wir dürfen uns weder unter die Sprecher des Gewaltsystems unterwerfen, noch dürfen wir die Gewaltfunktion Landraub aufrufen. Wir kommunizeren dass diese legalen Fiktionen "Person" "Papst" "König" nie existierten, sondern dass die Gläubigen hieran eine mentale Schwäche ausdrückten.  Des weiteren kommunizieren wir dass wir die Landraubfunktion "Königreich", "Staat", Kapitalismus und Gier-auf-Land (Markt-auf-Land) nicht mehr ausführen.
+
+Daraus erwächst das Verständnis dass ALLE Landtitel unter "Staat" kriminelle Instrumente sind, egal ob sie nun "Bundesland" "Europa" "Landkreis" "Stadt" "Straße" oder  "Grundstück" heißen mögen. Die Gesamtheit dieser Instrumente ist eine Wirkung des Landraubes gegenüber jedem neu inkarnierenden Wesens auf der Erde.
 
 ## Der Neu-Zustand
 
-
+Wir bilden Gemeinden, die sich von dem Altsystem unterscheiden:
+1. die  Republik-Gemeinden sind  Firmen im Gewaltsystem die  Gewalt gegen alle Insassen ausführen ("Steuern), und die die Landraubfunktion weiter ausführen (Markt auf Land).
