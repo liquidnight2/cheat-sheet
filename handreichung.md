@@ -59,9 +59,19 @@ Dadurch dass wir die heilige weibliche Funktion einhalten, haben wir das gottgeg
 
 Wir dürfen uns weder unter die Sprecher des Gewaltsystems unterwerfen, noch dürfen wir die Gewaltfunktion Landraub aufrufen. Wir kommunizeren dass diese legalen Fiktionen "Person" "Papst" "König" nie existierten, sondern dass die Gläubigen hieran eine mentale Schwäche ausdrückten.  Des weiteren kommunizieren wir dass wir die Landraubfunktion "Königreich", "Staat", Kapitalismus und Gier-auf-Land (Markt-auf-Land) nicht mehr ausführen.
 
-Daraus erwächst das Verständnis dass ALLE Landtitel unter "Staat" kriminelle Instrumente sind, egal ob sie nun "Bundesland" "Europa" "Landkreis" "Stadt" "Straße" oder  "Grundstück" heißen mögen. Die Gesamtheit dieser Instrumente ist eine Wirkung des Landraubes gegenüber jedem neu inkarnierenden Wesens auf der Erde.
+Daraus erwächst das Verständnis dass ALLE Landtitel unter "Staat" kriminelle Instrumente sind, egal ob sie nun "Bundesland" "Europa" "Landkreis" "Stadt" "Straße" oder  "Grundstück" heißen mögen. Die Gesamtheit dieser Instrumente ist eine Wirkung des Landraubes gegenüber jedem neu inkarnierenden Menschen auf der Erde.
 
 ## Der Neu-Zustand
 
 Wir bilden Gemeinden, die sich von dem Altsystem unterscheiden:
-1. die  Republik-Gemeinden sind  Firmen im Gewaltsystem die  Gewalt gegen alle Insassen ausführen ("Steuern), und die die Landraubfunktion weiter ausführen (Markt auf Land).
+1. die  Republik-Gemeinden sind  Firmen im Gewaltsystem die  Gewalt gegen alle Insassen ausführen ("Steuern), und die die Landraubfunktion weiter ausführen (Markt auf Land). Durch diese Funktion ist deren Währung (euro, usd, usw.)  ein kriminelles Instrument.
+2. die neuen Gemeinden sind weder Teil des Gewaltsystems, noch sprechen sie Herrschaft über Kontinente aus, noch vollziehen sie einen Modus von Gier auf Land. Dadurch dass die neuen Gemeinden nur eine beschränkte Fläche belegen, lassen sie viel Raum frei für alle Menschen die Freiheit suchen und die mit den Regeln von Gemeinde 1 oder Gemeinde 2 oder Gemeinde 3 nicht einverstanden sind. 
+
+Die wichtige Funktion zur Erhaltung der Freiheit (der anderen Menschen) ist es hierbei, den Anspruch über Landfläche klein und bescheiden zu halten. Die  Menschen die Gemeinde 1 veranstalten, beanspruchen weder Herrschaft über die gesamte Erde, noch tun sie sich mit anderen  Landhortern (Gier-auf-Land) zusammen. Dadurch dass diese Menschen der Gemeinde 1  allen anderen Menschen die göttliche Freiheit gewähren, werden sie  in der Konsequenz selbst frei sein. 
+
+Als Werkzeug hierfür benutzen wir die Verfassung der Gemeinde, in der wir die Funktion von Bescheidenheit auf Land verankern. Das bedeutet dass wir als Gemeinde gemeinsam für  ein Stück Land kämpfen (es gemeinsam besitzen), und  dass wir die Individual-Zuteilungen (Eigentum) nur noch als Pacht herausgeben. "Kaufen" von Land führt zum Willen es zu akkumulieren und um das zu verhindern, erlauben wir niemandem  mehr, einen Preis auf Land zu sprechen.  Der Einzelne Mann der vorne steht und kämpft muss selbst korrekt entscheiden dass er nur dann für eine Funktion des Land-Besitzens kämpfen darf, wenn er mit diesem Besitzen keinen anderenen Menschen schadet. Daraus ergibt sich im statischen Aspekt dass wir nur noch eine kleinere Fläche beanspruchen und keine Kontinente mehr. In der dynamischen Aspekt führen wir die Funktion Gier-auf-Land nicht mehr  aus und wir nehmen keinem anderen Menschen mehr das Land zum Leben weg. Dadurch verliert die Währung den Aspekt des kriminellen Instruments.
+
+
+
+
+
