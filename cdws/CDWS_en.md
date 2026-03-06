@@ -1,7 +1,5 @@
 # Codex of the Awake Souls - Transition to Responsible Stewardship of the Earth - Version 3
 
----
-
 This document describes how human beings build peaceful communities aware of the divine significance of their presence on Earth. By applying spiritual rules from a higher perspective, we establish the foundation for spiritual ascension. We use inner and outer independence to counteract the path of enslavement and the mechanization of humanity.
 
 ## Definitions
@@ -82,7 +80,7 @@ We discover that **all** land titles under “the state” are being used to dep
 The totality of these instruments has an effect of land grabbing against every newly incarnating human being on earth, and thereby have to be recognized as
 criminal instruments. However no truthful human being deserves it to be shooed across countries by some "the state" activists.
 
-To resolve this, we claim in a modest way only what we would need and do not expand our dictate in order to harm others. In order to hold that promise we have to separate our new currency from the function of fostering greed for land. We abandon speaking dominion over continents and the privilege to inherit land. We only rule over a small and limited area on earth, which we start at zero and expand for the purpose of living in a mode of modesty.
+To resolve this, we claim in a unassuming way only what we would need and do not expand our dictate in order to harm others. In order to hold that promise we have to separate our new currency from the function of fostering greed for land. We abandon speaking dominion over continents and the privilege to inherit land. We only rule over a small and limited area on earth, which we start at zero and expand for the purpose of living in a mode of modesty.
 
 We communicate that these legal fictions "person", "pope", "king" never existed, but that believers expressed a mental weakness in this regard.
 We abandon those habits of emotion—unstable, neurotic patterns that persisted as long as society clinged to toxic inclusion while simultaneously depriving everyone of resources.
@@ -91,7 +89,7 @@ We bring sacred masculine impulses into in accordance with God's law:
 
 - No more dominating the whole earth by proxy.
 - No more speaking the illusion of authority and not admitting that this means violence and subjugation.
-- Dominate modest living space without subjugating ourselves nor encroaching on others.
+- Dominate small living space without subjugating ourselves nor encroaching on others.
 
 When the illusion of being protected by "the state" has vanished, women might consider start asking men to defend them. This would end a millennia-long hatred amongst sexes that made it impossible to establish a real relationship with truthful communication. As members of the new holy communities we shift our attention: We still use technical and material inventions, but of the social and interactive world, we disregard every bit of information of the old world.
 
@@ -101,7 +99,7 @@ The topology of power over the surface of the earth will look different: Free co
 
 The communities of the new system are neither part of that system of violence, nor do they claim dominion over continents, nor do they engage in a mode of greed for land. Because the new communities occupy only a limited area, they leave enough space for all people who seek freedom and who disagree with the rules of Community 1 or Community 2 or Community 3. By leaving mental freedom to all other people, the people of Community 1 will themselves be free as a consequence.
 
-The important function of preserving the freedom of other people is to keep the claim to land area small and modest. The people who organize Community 1 do not claim dominion over the entire earth, nor do they join forces with other land hoarders. We use the new currency no longer as a means of extortion, and as a result, consequently will it not be a criminal instrument.
+The important function of preserving the freedom of other people is to keep the claim to land area small and unpretentious. The people who organize Community 1 do not claim dominion over the entire earth, nor do they join forces with other land hoarders. We use the new currency no longer as a means of extortion, and as a result, consequently will it not be a criminal instrument.
 
 We use the community constitution as a tool for this, in which we anchor the function of modesty on land. This means that we as a community fight together for a piece of land (possess it together), and that we only issue individual allocations (property) as leases. Buying, selling, inheriting land leads to the desire to accumulate it. To prevent accumulation, we no longer allow anyone to put a price on land, nor to inherit it.
 
