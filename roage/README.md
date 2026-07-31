@@ -4,7 +4,7 @@
 
 <br/> <br/> 
 
-<p align="center"><img src="https://raw.githubusercontent.com/liquidnight2/cheat-sheet/main/chalice-inverted.jpg" width="300"   align="center" /> </p>
+<p align="center"><img src="https://github.com/liquidnight2/cheat-sheet/blob/main/roage/chalice-inverted.jpg?raw=true" width="300"   align="center" /> </p>
 
 <br/> <br/> 
 <hr break="all"/>
